@@ -48,7 +48,6 @@ The cat tree is sturdy and efficient, providing a great place for my cat to slee
 
 ---
 
- 
   ## [Yaheetech 54In Cat Tree Tower Condo Furniture Scratch](/Yaheetech-54In-Cat-Tree-Tower-Condo-Furniture-Scratch)
 [![Yaheetech-54In-Cat-Tree-Tower-Condo-Furniture-Scratch](<https://images-na.ssl-images-amazon.com/images/I/81zxz9kNjKL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Tower-Furniture-Scratch-Kittens/dp/B07D49F77J/?tag=loopd-21>)[![Yaheetech-54In-Cat-Tree-Tower-Condo-Furniture-Scratch](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Tower-Furniture-Scratch-Kittens/dp/B07D49F77J/?tag=loopd-21>)
 
@@ -83,18 +82,6 @@ It took about an hour to assemble, the tower is great for kittens, and our cat l
 | 👉 Cat-Approved: Your kitty will love this scratcher, as it's covered in catnip or something similar.|👉 Chew proofing: It would be nice if this was made out of a material that cats couldn't easily chew through or scratch.|
 | 👉 Easy Assembly: All parts are included and labeled, so you shouldn't have any trouble putting it together.|👉 Size: It's a little small and my cats have already outgrown it. I wish it was just a bit larger so they could enjoy it for longer.|
 | 👉Good Construction: This scratcher is well-made and should last for a long time.|👉Sturdiness: Can tip over if Cat is playing with it vigorously.|
-
-
-Pros:
-1. Cat-Approved: Your kitty will love this scratcher, as it's covered in catnip or something similar.
-2. Easy Assembly: All parts are included and labeled, so you shouldn't have any trouble putting it together.
-3. Sturdy Construction: This scratcher is well-made and should last for a long time.
-
-Cons:
-1. Chew proofing: It would be nice if this was made out of a material that cats couldn't easily chew through or scratch.
-2. Size: It's a little small and my cats have already outgrown it. I wish it was just a bit larger so they could enjoy it for longer.
-3. Sturdiness: It's not the most sturdy toy and tends to tip over easily, especially when my cats are playing with it vigorously.
-4
 
 ---
 
