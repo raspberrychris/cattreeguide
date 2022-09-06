@@ -9,7 +9,7 @@ cascade:
 ---
 
 {{< lead >}}
-To get in contact with Home Music Gear please leave a message below.
+To get in contact with us here at Cat Tree Guide please leave a message below.
 {{< /lead >}}
 
 

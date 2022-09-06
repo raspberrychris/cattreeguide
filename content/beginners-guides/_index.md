@@ -9,7 +9,7 @@ cascade:
 ---
 
 {{< lead >}}
-Have you just got some music gear but don’t know what to do with it?  This part of the site is to help beginners get to grips with their music gear.
+Our beginners guides to looking after you cat are here.  Get tips and tricks on everything about taking care of your precious fur baby!
 {{< /lead >}}
 
 ![Screenshots of Congo on an iPhone, iPad and MacBook](screenshot.png)
