@@ -1,5 +1,5 @@
 ---
-title: Cat Tree Guide - Find your Purrfect Cat Tree! ::cat2::
+title: Cat Tree Guide - Find your Purrfect Cat Tree! 
 description: Welcome to Cat Tree Guide we review only the BEST cat trees out there so you don't have to.
 ---
 
