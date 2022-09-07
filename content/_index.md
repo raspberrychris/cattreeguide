@@ -275,7 +275,7 @@ I really enjoy this cat tree tower. It's well made, and it's sturdy enough to ha
 
 ### Product Description 
 
-
+Provide your cat with a great place to relax, play and scratch. The Pawstory Cat Tree, Cat Tower with Sisal Scratching Post is a multi-level cat condo that's perfect for both indoor cats and those who live outside as well. Made of high quality material, this sturdy cat tree features natural sisal rope that encourages scratching and is a healthier choice over plastic. It includes a wide base plate made of CARB certified P2 particleboard, which adds stability and supports heavier cats
 
 ### Our Rating For This Product
 
@@ -285,12 +285,17 @@ I really enjoy this cat tree tower. It's well made, and it's sturdy enough to ha
 
 ### Technical Details
 
+| Material           | Engineered Wood             |
+|--------------------|-----------------------------|
+| Color              | Dark Grey                   |
+| Brand              | Pawstory                    |
+| Target Species     | Cat                         |
+| Product Dimensions | 22.83"L x 22.83"W x 13.39"H |
+| Product Dimensions | 19.3"L x 19.3"W x 54"H      |
 
 ### Customers Say about this product
 
-> 
-
-
+> My kitten loved this. As a was trying to put it together she just kept playing in the square put, cause she knew it was something for her. 
 
 ### Pros and Cons
 
