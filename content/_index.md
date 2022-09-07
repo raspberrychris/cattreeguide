@@ -123,7 +123,6 @@ In general, It is sturdy and lasts a long time, especially with a heavy cat. The
 
 ---
 
- 
   ## [Aiwikide 002G Cat Tree Has Scratching Toy ](/Aiwikide-002G-Cat-Tree-Has-Scratching-Toy-)
 [![Aiwikide-002G-Cat-Tree-Has-Scratching-Toy-](<https://images-na.ssl-images-amazon.com/images/I/71a4WlOrgYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/WIKI-Scratching-Activity-Furniture-Jute-Covered/dp/B07CQHK2CS/?tag=cattreeguide-20>)[![Aiwikide-002G-Cat-Tree-Has-Scratching-Toy-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/WIKI-Scratching-Activity-Furniture-Jute-Covered/dp/B07CQHK2CS/?tag=cattreeguide-20>)
 
@@ -169,7 +168,7 @@ This cat tree provides a perfect place for your cats to play and relax. It has s
 
 ### Our Rating For This Product
 
-
+I'm very happy with this purchase. The instructions for assembly are well written, and the pieces come numbered, which is a big help. I'm no building expert, and I was able to assemble it on my own in about an hour.
 
 ⭐⭐⭐⭐⭐
 
@@ -184,22 +183,17 @@ This cat tree provides a perfect place for your cats to play and relax. It has s
 
 ### Customers Say about this product
 
-> 
-
-
+> The tree itself looks nice and seems to be very sturdy. The top bed is very cushy. My son put it together for me and it took him about 1/2 hour. He said it was not bad at all.
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉  Really easy to assemble|👉  It is not very tall: If you have a very active cat, this tree might not be suitable since it is not very tall.|
+| 👉  The cat tree is really sturdy and heavy|👉  The bowl is small: The bowl that comes with the tree is small and might need to be refilled frequently.|
+| 👉 It's so soft! The quality of the cover semms really great, and the platform at the very top is basically a pillow.|👉  It doesn't have many features: This cat tree doesn't have many features compared to others on the market, which might make it less appealing to some customers.|
 
 ---
-
  
   ## [Xin Three Layer Cat Tree  Cat Condo](/Xin-Three-Layer-Cat-Tree--Cat-Condo)
 [![Xin-Three-Layer-Cat-Tree--Cat-Condo](<https://images-na.ssl-images-amazon.com/images/I/81LDzdFZiSL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/WANG-XIN-Three-Hammocks-502/dp/B09576SLY9/?tag=cattreeguide-20>)[![Xin-Three-Layer-Cat-Tree--Cat-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/WANG-XIN-Three-Hammocks-502/dp/B09576SLY9/?tag=cattreeguide-20>)
