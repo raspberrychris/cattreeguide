@@ -386,7 +386,7 @@ My cat loves this product. To give you some background I have a cat who follows 
 
 ### Product Description 
 
-
+The FISH&NAP Cat Tree Cat Tower Cat Condo Sisal Scratching Posts with Jump Platform is the ultimate in cat furniture for your kitty. Made of durable and eco-friendly material, this tower has a wide variety of features that will keep your kitty happy and comfortable.
 
 ### Our Rating For This Product
 
@@ -395,6 +395,14 @@ My cat loves this product. To give you some background I have a cat who follows 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
+
+| Material           | Faux Fur, Plush, Sisal |
+|--------------------|------------------------|
+| Color              | Beige                  |
+| Brand              | FISH&NAP               |
+| Style              | Hammock                |
+| Target Species     | Cat                    |
+| Product Dimensions | 30"L x 13"W x 35"H     |
 
 
 ### Customers Say about this product
