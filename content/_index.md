@@ -129,42 +129,43 @@ In general, It is sturdy and lasts a long time, especially with a heavy cat. The
 
 ### Product Description 
 
-
+The AIWIKIDE Cat Tree offers a comfortable and spacious home for your cat. It has three levels for your cat to climb up and down, providing them with an excellent place to scratch, sleep and play. The hanging ball provides lots of fun and a hammock for relaxing. The hanging ball can also be replaced with a scratching post or toy. The top platform can let cats observe like a queen. It also lets cats watch the view outside the window or just take in the view from high up.
 
 ### Our Rating For This Product
 
-
+The instructions could be a little more clear, but it was pretty easy to put together. It's not the most stable thing in the world and can wobble a bit when my 1-year-old runs at it, but it's doing the trick so far. I'll probably try to secure it to the ground/wall once I get the tools.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Engineered Wood, Faux Fur |
+|----------------|---------------------------|
+| Color          | Grey -cat tree            |
+| Brand          | AIWIKIDE                  |
+| Style          | Hammock                   |
+| Target Species | Cat                       |
 
 ### Customers Say about this product
 
-> 
-
-
+> This tree was not easy to put together but in the end, I'm glad we bought it. We set it up in the corner of the living room close to the window and she loves it!
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉  Perfect for small spaces|👉  The basket and top level are a little small for some cats|
+| 👉  Sturdy and stable|👉  Great product for low cost but not the best quality. |
+| 👉  Good value for the price|👉  Looks as though it can tip over|
 
 ---
 
- 
   ## [Heybly Cat Tree Cat Tower For Indoor Cats](/Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats)
 [![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/71DIRTmqI1L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT010M/dp/B09J848LW3/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT010M/dp/B09J848LW3/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+This cat tree provides a perfect place for your cats to play and relax. It has scratching posts, perches, and even a feeding bowl to keep the kittens happy and healthy. The wide scratching board is designed for cats to sharpen their claws. This cat tree is made of sturdy wood with a metal frame that's covered in sisal rope to prevent toppling during playtime. It's also designed with anti-toppling devices for added safety.
 
 ### Our Rating For This Product
 
@@ -174,6 +175,12 @@ In general, It is sturdy and lasts a long time, especially with a heavy cat. The
 
 ### Technical Details
 
+| Material    | Engineered Wood, Faux Fur |
+|-------------|---------------------------|
+| Color       | Beige                     |
+| Brand       | Heybly                    |
+| Style       | Active                    |
+| Item Weight | 10.9 Kilograms            |
 
 ### Customers Say about this product
 
