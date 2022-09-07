@@ -230,19 +230,6 @@ I'm giving this tree five stars because each of my cats love it. It's a great si
 | 👉  Hammock: The hammocks on this tree are a hit with my cats, and they love lounging in them.|👉  Not Suitable for All Cats: This cat tree is smaller, so it may not be suitable for all cats. Some larger cats may not be able to fit in the hide-a-way|
 | 👉 Hide-a-way feature: My scaredy cat loves being able to hide away in this tree when she feels overwhelmed or nervous.|👉  May Not Be Durable: Another potential con is that this cat tree may not be as durable as other options on the market because it is smaller and made of lighter materials|
 
-
-Pros:
-
-1. Three cats can use it at the same time: This tree is big enough for three cats to use at the same time, which is great if you have multiple pets.
-2. Hammock-y things: The hammocks on this tree are a hit with my cats, and they love lounging in them.
-3. Hide-a-way feature: My scaredy cat loves being able to hide away in this tree when she feels overwhelmed or nervous.
-
-Cons:
-1. Difficult to Assemble: One of the potential cons of this cat tree is that it may be difficult to assemble. There are three holes and they are only slightly different lengths apart, so getting the right posts in the right holes so the hideaway fits can be tricky.
-2. Not Suitable for All Cats: This cat tree is smaller, so it may not be suitable for all cats. Some larger cats may not be able to fit in the hide-a-way or use the hammock-y things effectively.
-3. May Not Be Durable: Another potential con is that this cat tree may not be as durable as other options on the market because it is smaller and made of lighter materials
-
-
 ---
 
  
@@ -251,7 +238,7 @@ Cons:
 
 ### Product Description 
 
-
+This multi-level cat furniture will keep your indoor cat happy, healthy and entertained for hours. The BestPet 54in Cat Tree Tower for Indoor Cats provides a multitude of playful and comfortable places to rest or play. Each level offers multiple perches and a plushy condo where your kitty can curl up and sleep. There is also a sturdy sisal pole that they can scratch on if they desire. The BestPet Cat Tree is made from high-quality materials with skin-friendly faux fur all over.
 
 ### Our Rating For This Product
 
@@ -261,12 +248,17 @@ Cons:
 
 ### Technical Details
 
+| Material           | Faux Fur               |
+|--------------------|------------------------|
+| Color              | Ashy                   |
+| Brand              | BestPet                |
+| Item Weight        | 26 Pounds              |
+| Target Species     | Cat                    |
+| Product Dimensions | 19.3"L x 19.3"W x 54"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> My kittens love to play with it when I put them on top but they still prefer regular boxes lol. All of the piece came in and arrived earlier than expected :)
 
 ### Pros and Cons
 
