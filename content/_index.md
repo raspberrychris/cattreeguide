@@ -390,7 +390,7 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo Sisal Scratching Posts with Jump Platf
 
 ### Our Rating For This Product
 
-
+The cat tree is excellent. We've bought at least three for our other cats in the past and this new one will be our 4th one. The cat tower is great for smaller cats, like ours. We have an 12-week-old kitten who absolutely loves it.
 
 ⭐⭐⭐⭐⭐
 
@@ -407,64 +407,24 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo Sisal Scratching Posts with Jump Platf
 
 ### Customers Say about this product
 
-> 
-
-
+> I did read the measurements on this, but i thought the top bed would be a little bigger. Overall it works for what i needed, but i have a few other towers that ive paid less for that have bigger beds on top.
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉  The sisal wrap is durable and will last a long time.|👉  The instructions are not always as clear and concise as they could be.|
+| 👉 Assembly is not too difficult and the instructions are clear. |👉 Could have been packed better: Everything was well packed but there is always room for improvement in terms of packaging products securely|
+| 👉  The cat enjoys using it and it helps to keep his nails trimmed.|👉 It might not be very eco-friendly due to the materials used and the packaging. |
 
 ---
-
- 
-  ## [Catit Senses 2.0 Food Tree – Interactive Cat Toy](/Catit-Senses-2.0-Food-Tree-– Interactive-Cat-Toy)
-[![Catit-Senses-2.0-Food-Tree-– Interactive-Cat-Toy](<https://images-na.ssl-images-amazon.com/images/I/617-s96DwaL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Catit-Senses-2-0-Food-Tree/dp/B00D3NI31Y/?tag=cattreeguide-20>)[![Catit-Senses-2.0-Food-Tree-– Interactive-Cat-Toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Catit-Senses-2-0-Food-Tree/dp/B00D3NI31Y/?tag=cattreeguide-20>)
-
-### Product Description 
-
-
-
-### Our Rating For This Product
-
-
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
-> 
-
-
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
-
----
-
  
   ## [Amazon Basics Medium Platform Cat Tree Tower ](/Amazon-Basics-Medium-Platform-Cat-Tree-Tower-)
 [![Amazon-Basics-Medium-Platform-Cat-Tree-Tower-](<https://images-na.ssl-images-amazon.com/images/I/51lBQgdDB2L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/AmazonBasics-Platform-Cat-Tree-Medium/dp/B07FVXSB8Q/?tag=cattreeguide-20>)[![Amazon-Basics-Medium-Platform-Cat-Tree-Tower-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/AmazonBasics-Platform-Cat-Tree-Medium/dp/B07FVXSB8Q/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+Cats have a natural instinct to scratch. Keep your cat's nails healthy by providing it with something sturdy to scratch on, like this AmazonBasics Cat Tree with Platform and Scratching Posts. This multi-platform tree has carpeted platforms for lounging and playing, as well as scratching posts that are designed to keep your cat's nails healthy. And its neutral color will fit in nicely with your home's current décor.
 
 ### Our Rating For This Product
 
@@ -474,12 +434,17 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo Sisal Scratching Posts with Jump Platf
 
 ### Technical Details
 
+| Material       | Jute          |
+|----------------|---------------|
+| Color          | Beige         |
+| Brand          | Amazon Basics |
+| Style          | Medium        |
+| Item Weight    | 26.42 Pounds  |
+| Target Species | Cat           |
 
 ### Customers Say about this product
 
-> 
-
-
+> My cat loves to bake his old bones in direct sunlight. This is his favorite spot right in front of the window. I set it up and waited til the right time of day (morning sun) to show him his new sunny spot and he loved it immediately. My other cat loves the scratcher posts below it. Definitely a good buy for them.
 
 ### Pros and Cons
 
