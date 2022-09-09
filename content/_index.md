@@ -556,9 +556,7 @@ AmazonBasics Cat Activity Tree with Scratching Posts provides your cat with a sa
 
 ### Customers Say about this product
 
-> 
-
-
+> This is a good size (taller than expected) cat tree for the thiccem boy cats out there, but doesn’t take up an insane amount of living space. My two cats are already obsessed with it and there’s room for both of them at the same time. Decent quality, pretty easy to put together.
 
 ### Pros and Cons
 
