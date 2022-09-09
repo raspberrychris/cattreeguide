@@ -82,7 +82,6 @@
   {{/* Site Verification */}}
   {{ with .Site.Params.verification.google }}
     <meta name="google-site-verification" content="{{ . }}" />
-    <meta name="ahrefs-site-verification" content="f50367443f4e385c6391f0222e3723df7ae6096a39cd58cc4f39bcab0519096d">
   {{ end }}
   {{ with .Site.Params.verification.bing }}
     <meta name="msvalidate.01" content="{{ . }}" />
@@ -113,4 +112,5 @@
   {{ if templates.Exists "partials/extend-head.html" }}
     {{ partialCached "extend-head.html" .Site }}
   {{ end }}
+  <meta name="ahrefs-site-verification" content="f50367443f4e385c6391f0222e3723df7ae6096a39cd58cc4f39bcab0519096d">
 </head>
