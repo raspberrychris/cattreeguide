@@ -582,7 +582,7 @@ A cat tree for larger cats, this cat tower features a widened perch and is fille
 
 ### Our Rating For This Product
 
-
+This cat tower is the best purchase I've made for my cat. I wanted him to be able to easily get to a window sill we have and he could get to the second level, but then he couldn't get to the top because the oversized bed hung too far over. So, I took the top off and put that piece on the floor. He loves sleeping in it (on the floor) and can still get to the window sill when he wants to using the 2 levels left.
 
 ⭐⭐⭐⭐⭐
 
