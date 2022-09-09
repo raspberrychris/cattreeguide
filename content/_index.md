@@ -465,7 +465,7 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that 
 
 ### Our Rating For This Product
 
-
+This is a lovely little bed, and my cats are happy with it. It's not big, but it is just the right size for our 2 lb kittens. I really like the color options, but it does take a little more time to assemble than what we expected. 
 
 ⭐⭐⭐⭐⭐
 
@@ -487,12 +487,11 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 It is very sturdy.|👉 Not big enough for full size cats |
+| 👉 It only took me 20 minutes to put together |👉 May not be sturdy enough for some pets|
+| 👉 I had all the parts we needed.|👉 Color might not be to everyone's taste. |
 
 ---
-
  
   ## [Feandrea Cat Tower Cat Tree For Indoor Cats](/Feandrea-Cat-Tower-Cat-Tree-For-Indoor-Cats)
 [![Feandrea-Cat-Tower-Cat-Tree-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/81sxs528l0L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-45-3-Inch-Scratching-Apartment-UPCT141W01/dp/B08MPWZDHS/?tag=cattreeguide-20>)[![Feandrea-Cat-Tower-Cat-Tree-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-45-3-Inch-Scratching-Apartment-UPCT141W01/dp/B08MPWZDHS/?tag=cattreeguide-20>)
@@ -503,7 +502,7 @@ FEANDREA Cat Tower is made of high-quality, eco-friendly and pet-safe materials.
 
 ### Our Rating For This Product
 
-
+My cat loves this tree. Up top, there's a little hammock and even a hole for hiding. The bottom is covered in a soft carpet for lounging on. There are ample dangling toys, including one that hangs right in the middle of the tree. The top of the tree has a plush pad with a tunnel leading to the bottom. All in all, this is a good quality tree that my cat seems to really enjoy - and at this price, it's worth it.
 
 ⭐⭐⭐⭐⭐
 
@@ -525,9 +524,10 @@ FEANDREA Cat Tower is made of high-quality, eco-friendly and pet-safe materials.
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉  The instructions were easy to follow and I was able to put it together by myself|👉 The fabric had a slight odor right out of the box, but that went away in a day or |
+| 👉 It's very sturdy, no wobbling or tipping over when she jumps on it
+|👉 Packaging may not be fully eco friendly|
+| 👉 The price was unbeatable compared to other similar products |👉 Some cats may be too big for it|
 
 ---
 
