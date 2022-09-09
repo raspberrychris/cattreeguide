@@ -97,6 +97,7 @@
   {{ template "_internal/twitter_cards.html" . }}
   {{/* Schema */}}
   {{ partial "schema.html" . }}
+  {{ partial "pros-cons-schema.html" . }}
   {{/* Me */}}
   {{ with .Site.Author.name }}<meta name="author" content="{{ . }}" />{{ end }}
   {{ with .Site.Author.links }}
