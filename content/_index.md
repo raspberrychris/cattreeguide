@@ -540,7 +540,9 @@ AmazonBasics Cat Activity Tree with Scratching Posts provides your cat with a sa
 
 ### Our Rating For This Product
 
+It is a very sturdy, good looking tower and I would highly recommend it. Assembly took 10 minutes and the instructions were easy to follow.
 
+I have seen some "cheapo" towers in other people's homes that are poorly made and look tatty, so I was surprised at how well the instructions were. I built up quite a bit of trust with amazon basics brand over the years, either with pet things or cables, kitchen things. The one thing that is consistent is there are few bells and whistles, but what you get is reliably and robustly made. This tower takes up a lot of room, but it was worth the purchase.
 
 ⭐⭐⭐⭐⭐
 
@@ -576,7 +578,7 @@ AmazonBasics Cat Activity Tree with Scratching Posts provides your cat with a sa
 
 ### Product Description 
 
-
+A cat tree for larger cats, this cat tower features a widened perch and is filled to the brim with edges to ensure your cats can stretch out comfortably. With a scratching board and a ladder in one, this two-in-one scratcher helps your cats scratch their itch or get up if they're elderly or have mobility issues. Made with 2 doors, this cat cave lets you easily let your cat in and out of the fluffy cave or go to the basket.
 
 ### Our Rating For This Product
 
@@ -586,12 +588,17 @@ AmazonBasics Cat Activity Tree with Scratching Posts provides your cat with a sa
 
 ### Technical Details
 
+| Material           | Particleboard, Plush, Sisal |
+|--------------------|-----------------------------|
+| Color              | Light Gray                  |
+| Brand              | FEANDREA                    |
+| Item Weight        | 25.6 Pounds                 |
+| Target Species     | Cat                         |
+| Product Dimensions | 18.9"L x 18.9"W x 37.8"H    |
 
 ### Customers Say about this product
 
-> 
-
-
+> Really a good sized, sturdy cat condo for your BIG cats! Not as tall as others we’ve had but it also doesn’t list or shake when they’re jumping on & off.
 
 ### Pros and Cons
 
