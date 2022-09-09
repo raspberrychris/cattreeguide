@@ -428,7 +428,7 @@ Cats have a natural instinct to scratch. Keep your cat's nails healthy by provid
 
 ### Our Rating For This Product
 
-
+The Amazon Basics Cat Tree with Platform, Scratching Posts provides tons of space for your cat to lounge and play. With a carpeted platform, your cat can relax atop the tree while they scratch and stretch out at their leisure. Plus, you'll love not having to worry about them ruining your furniture or curtains with this stylish tree!
 
 ⭐⭐⭐⭐⭐
 
