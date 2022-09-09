@@ -491,8 +491,6 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
  
@@ -501,7 +499,7 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that 
 
 ### Product Description 
 
-
+FEANDREA Cat Tower is made of high-quality, eco-friendly and pet-safe materials. The cat tower is not only a cat tree, but also a scratching post and a perch. It has two top perches that are filled to the brim with soft padding to provide comfort for your cats. The scratching board is also a ramp and it can be used by cats as a ladder to climb up and down easily. The cat area has plenty of room for larger cats.
 
 ### Our Rating For This Product
 
@@ -511,12 +509,17 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that 
 
 ### Technical Details
 
+| Material           | Particleboard, Plush, Sisal |
+|--------------------|-----------------------------|
+| Color              | Light Gray                  |
+| Brand              | FEANDREA                    |
+| Item Weight        | 22.7 Pounds                 |
+| Target Species     | Cat                         |
+| Product Dimensions | 19.69"L x 13.78"W x 45.28"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> This is a good-looking Cat Tower or, as I prefer, Cat Condo. But my two cats are too big for it. My brother and sister cats weigh 15lbs and 13lbs respectively. The two platforms do not accommodate them. They won't even try getting on-board. It's going to make a nice gift for my neighbor whose cats are smaller.
 
 ### Pros and Cons
 
@@ -526,17 +529,14 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Amazon Basics Cat Tree Indoor Climbing Activity Cat](/Amazon-Basics-Cat-Tree-Indoor-Climbing-Activity-Cat)
 [![Amazon-Basics-Cat-Tree-Indoor-Climbing-Activity-Cat](<https://images-na.ssl-images-amazon.com/images/I/91mqPXJY2OL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/AmazonBasics-Activity-Scratching-Posts-Medium/dp/B017WXWZ6Y/?tag=cattreeguide-20>)[![Amazon-Basics-Cat-Tree-Indoor-Climbing-Activity-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/AmazonBasics-Activity-Scratching-Posts-Medium/dp/B017WXWZ6Y/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+AmazonBasics Cat Activity Tree with Scratching Posts provides your cat with a safe and fun way to stay active, play and rest. The tree has carpet-covered board construction, a rounded top platform that doubles as a cat bed, and the posts wrapped in jute rope for enticing scratching surfaces.
 
 ### Our Rating For This Product
 
@@ -546,6 +546,13 @@ The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that 
 
 ### Technical Details
 
+| Material       | Engineered Wood |
+|----------------|-----------------|
+| Color          | Beige           |
+| Brand          | Amazon Basics   |
+| Style          | Tree Tower      |
+| Item Weight    | 15.43 Pounds    |
+| Target Species | Cat             |
 
 ### Customers Say about this product
 
