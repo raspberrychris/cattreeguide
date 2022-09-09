@@ -450,21 +450,18 @@ The Amazon Basics Cat Tree with Platform, Scratching Posts provides tons of spac
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉  The cat likes it!|👉 Not durable: The construction of the cat tree is a little on the light side, which means it may not be able to withstand a lot of wear and tear.|
+| 👉 The kitty uses it daily and likes taking naps on it.|👉 May be unstable: Because the construction is not very sturdy, there is a risk that the cat tree could topple over if it is knocked into or if your cat jumps onto it with too much force. |
+| 👉 It is a good height for the cat to sit on and look out of the window.|👉 Scratch posts are unnecessary: The included scratch posts are unnecessary because most cats will probably not use them.|
 
 ---
-
  
   ## [Fish&Nap Us01M Cute Cat Tree For Indoor Cat](/Fish&Nap-Us01M-Cute-Cat-Tree-For-Indoor-Cat)
 [![Fish&Nap-Us01M-Cute-Cat-Tree-For-Indoor-Cat](<https://images-na.ssl-images-amazon.com/images/I/612P+M9ZkjL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B084JNXCBR/?tag=cattreeguide-20>)[![Fish&Nap-Us01M-Cute-Cat-Tree-For-Indoor-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B084JNXCBR/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+The FISH&NAP Cat Tree Cat Tower Cat Condo is a multifunctional pet product that provides everything your cats needs. The cat tree is designed with three levels, a sisal scratching post and a beautiful cat ring to keep your cats active. The bottom board of the cat tower is big enough to provide a stable condo and to be used as a scratching post. If you are looking for an easy-to-carry cat tree, this product is the right choice!
 
 ### Our Rating For This Product
 
@@ -474,12 +471,17 @@ The Amazon Basics Cat Tree with Platform, Scratching Posts provides tons of spac
 
 ### Technical Details
 
+| Material           | Faux Fur, Plush, Sisal |
+|--------------------|------------------------|
+| Color              | Beige                  |
+| Brand              | FISH&NAP               |
+| Style              | Platform               |
+| Target Species     | Cat                    |
+| Product Dimensions | 16.9"L x 13"W x 32.3"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> Great cat tree for a small apartment. The top platform sits right under the window in our living room. Our little guy loves it!
 
 ### Pros and Cons
 
