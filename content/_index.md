@@ -612,22 +612,28 @@ This cat tower is the best purchase I've made for my cat. I wanted him to be abl
 
 ### Product Description 
 
-
+The FEANDREA Cat Tree is the ultimate cat condo for your furry friends. It’s designed with a thickened scratch post and dual condo playhouse to provide all the fun and exercise they need! The raised edge at the top lounger provides prime relaxation while you watch your feline friends play below. Made with natural sisal rope, the scratching posts promote healthy nail growth and keep your kitties occupied.
 
 ### Our Rating For This Product
 
-
+The quality of this cat tree is greater than anything I have seen. It's HUGE and has two condos, each with a very plush cover. Putting it together was a breeze, and my cats love both the perch and the condos.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+Result (click "Generate" to refresh) Copy to clipboard  Preview
+| Material       | Engineered Wood |
+|----------------|-----------------|
+| Color          | Beige           |
+| Brand          | FEANDREA        |
+| Style          | Active          |
+| Item Weight    | 24 Pounds       |
+| Target Species | Cat             |
 
 ### Customers Say about this product
 
-> 
-
-
+> This is a very sturdy and we'll made cat tree if you have a larger cat it will be perfect. Well built and able to handle the weight of larger cats. I highly recommend it!
 
 ### Pros and Cons
 
