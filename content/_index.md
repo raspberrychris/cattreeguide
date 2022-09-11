@@ -558,20 +558,17 @@ I have seen some "cheapo" towers in other people's homes that are poorly made an
 
 ### Customers Say about this product
 
-> This is a good size (taller than expected) cat tree for the thiccem boy cats out there, but doesn’t take up an insane amount of living space. My two cats are already obsessed with it and there’s room for both of them at the same time. Decent quality, pretty easy to put together.
+> This is a good size (taller than expected) cat tree for the cats out there, but doesn’t take up an insane amount of living space. My two cats are already obsessed with it and there’s room for both of them at the same time. Decent quality, pretty easy to put together.
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 Sturdy and well-made |👉 Might be a little too tall for some houses|
+| 👉 Easy and quick to assemble |👉 No other cons|
+| 👉 Afforable pricing|👉 No other cons |
 
 ---
-
  
   ## [Feandrea Cat Tree Small Cat Tower  Widened](/Feandrea-Cat-Tree-Small-Cat-Tower--Widened)
 [![Feandrea-Cat-Tree-Small-Cat-Tower--Widened](<https://images-na.ssl-images-amazon.com/images/I/818RtCXAouL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT51W/dp/B07Q2B3B89/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Small-Cat-Tower--Widened](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT51W/dp/B07Q2B3B89/?tag=cattreeguide-20>)
@@ -604,15 +601,12 @@ This cat tower is the best purchase I've made for my cat. I wanted him to be abl
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 The cat tree is perfect for small spaces.|👉 The bowl looking part doesn't look/feel very sturdy.|
+| 👉 My cat loves the ball attachments and plays with them often.|👉 Bowl part may not be suitable for larger cats |
+| 👉 My cat feels confident using the bowl part on her own.|👉 One of the main reasons I got this cat tree was for the scratching posts, but my cat doesn't seem to want to use them|
 
 ---
 
- 
   ## [Feandrea Cat Tree For Large Cats 22-Inch Widened](/Feandrea-Cat-Tree-For-Large-Cats-22-Inch-Widened)
 [![Feandrea-Cat-Tree-For-Large-Cats-22-Inch-Widened](<https://images-na.ssl-images-amazon.com/images/I/71p6POUZGoL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-22-Inch-Scratching-Multi-Level-33-1-Inch/dp/B07M66Z35Q/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-For-Large-Cats-22-Inch-Widened](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-22-Inch-Scratching-Multi-Level-33-1-Inch/dp/B07M66Z35Q/?tag=cattreeguide-20>)
 
