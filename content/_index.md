@@ -643,17 +643,14 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Tinweius 01A Cat Tree Scratching Toy Activity Centre](/Tinweius-01A-Cat-Tree-Scratching-Toy-Activity-Centre)
 [![Tinweius-01A-Cat-Tree-Scratching-Toy-Activity-Centre](<https://images-na.ssl-images-amazon.com/images/I/818pHp3sNmL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/TINWEIUS-Scratching-Activity-Centre-Furniture/dp/B07SRRMPWS/?tag=cattreeguide-20>)[![Tinweius-01A-Cat-Tree-Scratching-Toy-Activity-Centre](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/TINWEIUS-Scratching-Activity-Centre-Furniture/dp/B07SRRMPWS/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+TINWEI Cat Tree Scratching Toy Activity Centre Cat Tower Furniture Scratching Posts are a perfect place for your kitty to observe from and relax. The high quality faux fur, natural sisal posts make it durable for long time scratching. Four levels to jump up and down. It provides a spot for your kitty to scratch, play and rest.
 
 ### Our Rating For This Product
 
@@ -663,6 +660,13 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ### Technical Details
 
+| Material           | Engineered Wood, Faux Fur   |
+|--------------------|-----------------------------|
+| Color              | Grey-cat tree               |
+| Brand              | TINWEI                      |
+| Target Species     | Cat                         |
+| Product Dimensions | 25.98"L x 16.14"W x 35.43"H |
+| Target Species     | Cat                         |
 
 ### Customers Say about this product
 
@@ -688,7 +692,7 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ### Product Description 
 
-
+The MWPO 63.8 inch Cat Tree is the perfect all-in-one spot for your cat to do all the things she loves, from lounging to leaping to honing her expert hunting skills. The multi-tiered tower replicates the cat’s natural outdoor environment and expands the activity space for cats vertically in your room. Frisky cats can jump from perch to perch and climb to the top of the lookout tower. Carefully placed dangling toys give kitty
 
 ### Our Rating For This Product
 
@@ -698,12 +702,18 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ### Technical Details
 
+| Material       | Plush, Sisal |
+|----------------|--------------|
+| Color          | Brown        |
+| Brand          | MWPO         |
+| Style          | Hammock      |
+| Item Weight    | 29 Pounds    |
+| Target Species | Cat          |
+
 
 ### Customers Say about this product
 
-> 
-
-
+> My little feline just loves the new extension to our apartment. She enjoys it all day. She always finds a new place to hide from me every day. She’s happy and that makes me happy. Thank You
 
 ### Pros and Cons
 
@@ -717,13 +727,12 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ---
 
- 
   ## [Yaheetech 62.2 Inches Cat Tree Cat Towers Cat](/Yaheetech-62.2-Inches-Cat-Tree-Cat-Towers-Cat)
 [![Yaheetech-62.2-Inches-Cat-Tree-Cat-Towers-Cat](<https://images-na.ssl-images-amazon.com/images/I/61WfiKjVW+L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/YAHEETECH-Platform-Hammock-Scratching-Activity/dp/B08DQZQC3Y/?tag=cattreeguide-20>)[![Yaheetech-62.2-Inches-Cat-Tree-Cat-Towers-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/YAHEETECH-Platform-Hammock-Scratching-Activity/dp/B08DQZQC3Y/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+The Yaheetech cat tree is a perfect way to give your pets a space that is all their own. It comes with 2 plushy top perches and 2 cozy condos, as well as 6 different scratching posts in various heights, so that your cats can satisfy their scratching habits. The tower is made from carefully-selected materials, so it's both safe for your pets and for you.
 
 ### Our Rating For This Product
 
@@ -733,12 +742,18 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ### Technical Details
 
+| Material       | Particle board & plush & sisal rope |
+|----------------|-------------------------------------|
+| Color          | Beige                               |
+| Brand          | Yaheetech                           |
+| Style          | Hammock                             |
+| Item Weight    | 34.94 Pounds                        |
+| Target Species | Cat                                 |
+
 
 ### Customers Say about this product
 
-> 
-
-
+> Our 11 mo old kittens love every square inch of this. They even use the hammock.  One perches on the top and the other perches on the second tower. I do notice that the tower posts will wobble so I tend to turn them tighter for stability.
 
 ### Pros and Cons
 
@@ -758,7 +773,7 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ### Product Description 
 
-
+FEANDREA has a solution for your cat's boredom, stress, and loneliness. Your cat will love the soft plush, the many perches (including a hammock!), and the comfortable cushion in this large cat tower. With 3 removable pompoms and a spacious cave, there's plenty of room for cats to play and have fun.
 
 ### Our Rating For This Product
 
@@ -768,12 +783,17 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ### Technical Details
 
+| Material       | Particleboard, Plush Fabric, Sisal |
+|----------------|------------------------------------|
+| Color          | Light Gray                         |
+| Brand          | FEANDREA                           |
+| Style          | Hammock                            |
+| Item Weight    | 39.7 Pounds                        |
+| Target Species | Cat                                |
 
 ### Customers Say about this product
 
-> 
-
-
+> Three indoor kitties, one of whom is enthusiastically adamant about his personal bubble, took to this cat tree so beautifully.. it has room for all of them to occupy it simultaneously & apparently is very comfortable. They love the height and play or lay on it almost constantly
 
 ### Pros and Cons
 
