@@ -776,7 +776,7 @@ FEANDREA has a solution for your cat's boredom, stress, and loneliness. Your cat
 
 ### Our Rating For This Product
 
-
+It is easy to set up and it is nice and tall for a tower. It also has a button strap so you can secure the tower to the wall for stability, which is great because my cats are very playful and I'm always worried they are going to knock it over. The material is soft and cool to the touch. There are two levels with different sections of size, and the second level has a little house for your cat to sleep in or play in. Support pieces are at the bottom which helps keep the base from wobbling.
 
 ⭐⭐⭐⭐⭐
 
@@ -798,14 +798,11 @@ FEANDREA has a solution for your cat's boredom, stress, and loneliness. Your cat
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 The platforms are padded and have a decent bumper on the sides. |👉 Cats ruin the tree: The girls love their new tree, but it doesn't last long because the cats quickly ruin it. |
+| 👉 The condo got an adjustment, because one of our girls lives to look out the window.|👉 The platforms are too small: The platforms on the new tree are too small for the cats, and they will need to be replaced soon.|
+| 👉 The platforms themselves are too small if I'm being honest, but the cats are a bit smaller than other kitties so ut will work for awhile |👉 The condo got an adjustment: One of our cats lives to look out the window, so we had to adjust the condo accordingly.|
 
 ---
-
  
   ## [Yaheetech Cat Tree House Condo Perch Pet Tower](/Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower)
 [![Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower](<https://images-na.ssl-images-amazon.com/images/I/61xAVHxH-YL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-House-Condo-Perch-Kittens/dp/B07WZK5C4H/?tag=cattreeguide-20>)[![Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-House-Condo-Perch-Kittens/dp/B07WZK5C4H/?tag=cattreeguide-20>)
