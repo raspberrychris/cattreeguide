@@ -995,8 +995,7 @@ NEGTTE Cat Tree is a multi-level cat condo with sisal scratching posts and perch
 
 ### Our Rating For This Product
 
-
-
+I love this cat tree and so do my cats!  The assembly was easy. It is sturdy and accommodates all our cats, including two kittens and three adults of varying sizes. It is easy to clean and looks great. 
 
 ⭐⭐⭐⭐⭐
 
@@ -1018,11 +1017,9 @@ NEGTTE Cat Tree is a multi-level cat condo with sisal scratching posts and perch
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 Very Sturdy and can hold all five cats |👉 Too much work to assemble: The instructions for assembling this cat tree are not very clear, and it can be quite time-consuming to put together.|
+| 👉 It was easy to assemble with the help of instructions|👉 Not suitable for all cats: This cat tree may be too small or too big for some cats, depending on their size and weight. Additionally, some cats may not take well to the height difference between the levels of this cat tree|
+| 👉 Good design and look|👉 Some of the materials used could be higher quality|
 
 ---
 
@@ -1035,7 +1032,7 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 
 ### Our Rating For This Product
 
-
+The pet tree is a good selection for indoor cats that need exercise. I like the height adjustment so it doesn't hog too much bedroom space and goes to about an inch from the ceiling. I had some issues with assembly. The product page says the height is adjustable between 89.8-107.9 inches, but when assembled the tower was less than an inch from the ceiling. The compression topper is also just under an inch on its own, so there wasn't much room to install the extension tubes. All in all, though, it's a good deal and worth the price if you're looking for a cat tower.
 
 ⭐⭐⭐⭐⭐
 
@@ -1068,7 +1065,7 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 
 ### Product Description 
 
-
+This luxurious cat tree is a luxury 3-level condo designed for indoor cats. It's the perfect size for your active kitties and is spacious enough for multiple cats to play on at once. The condos are spacious enough and has soft bedding so even large cats can sleep in it comfortably. They're also perfect for kitties who prefer sticking together. Stability is the primary consideration for this cat tower and it comes with reinforced climbing frame base, sisal wrapped scratch posts and anti-to
 
 ### Our Rating For This Product
 
@@ -1078,12 +1075,14 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 
 ### Technical Details
 
+| Color          | Beige  |
+|----------------|--------|
+| Brand          | Heybly |
+| Target Species | Cat    |
 
 ### Customers Say about this product
 
-> 
-
-
+> Our cats love it! Our older cat just sleeps in on but our younger one loves to hang up side down and “thump” the toys with his back feel! Best $150 I have spent in a long time.
 
 ### Pros and Cons
 
@@ -1094,16 +1093,14 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 | 👉 |👉 |
 
 
-
 ---
 
- 
   ## [Heybly Cat Tree Cat Tower For Indoor Cats](/Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats)
 [![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/61-alpqIsGL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT023M/dp/B09XX5K937/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT023M/dp/B09XX5K937/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+This cat tree is sure to provide hours of fun for your furry friend. The base is too small for such a tall cat tree, but it was very easy to put together because the parts were labeled. The directions were very clear, but as others mentioned the wall strap is not long enough. The kitties will not lay on the hammock bc it is too low. Appears to be very good construction. They even gave you extra parts. Overall I am very happy with my purchase, just
 
 ### Our Rating For This Product
 
@@ -1113,12 +1110,14 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 
 ### Technical Details
 
+| Color          | Beige  |
+|----------------|--------|
+| Brand          | Heybly |
+| Target Species | Cat    |
 
 ### Customers Say about this product
 
-> 
-
-
+> It wasn’t too bad of a price with how high the car tree is and allowing 3 full size cats to be able to be on it at any given time seemed to a really good deal.
 
 ### Pros and Cons
 
@@ -1128,17 +1127,14 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Yunwei Newest Cat Tree  Cat Condo And](/Yunwei-Newest-Cat-Tree--Cat-Condo-And)
 [![Yunwei-Newest-Cat-Tree--Cat-Condo-And](<https://images-na.ssl-images-amazon.com/images/I/81TkmI4iwRL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/YUNWEI-Newest-Tree-Condo-Hammock%EF%BC%8CGrey/dp/B084YZWS2C/?tag=cattreeguide-20>)[![Yunwei-Newest-Cat-Tree--Cat-Condo-And](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/YUNWEI-Newest-Tree-Condo-Hammock%EF%BC%8CGrey/dp/B084YZWS2C/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+The YUNWEI Newest Cat Tree is a great addition to any home. Constructed with an innovative design, this cat tree provides a high-quality platform for your cats to scratch, claw and play. Made of durable material, this cat tree will provide your cats with hours of entertainment and relaxation. The multi-level cat tree includes a condo and hammock for your feline friends to take their naps on. With its grey color and clean lines, this cat tree is the perfect
 
 ### Our Rating For This Product
 
@@ -1148,12 +1144,16 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 
 ### Technical Details
 
+| Material           | Faux Fur, Sisal             |
+|--------------------|-----------------------------|
+| Color              | Grey, Off-White             |
+| Brand              | YUNWEI                      |
+| Target Species     | Cat                         |
+| Product Dimensions | 12.79"L x 22.04"W x 38.98"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> I have rescued Siamese and they were a bit picky go figure. Well they love their little tree house. It’s perfect for these kitties. I don’t know how they will fit as adults but so far they approve!
 
 ### Pros and Cons
 
@@ -1163,16 +1163,12 @@ The PETEPELA Cat Tower is a great way to provide your cat with climbing and loun
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Heybly Cat Tree Cat Tower Condo  Sisal-Covered](/Heybly-Cat-Tree-Cat-Tower-Condo--Sisal-Covered)
 [![Heybly-Cat-Tree-Cat-Tower-Condo--Sisal-Covered](<https://images-na.ssl-images-amazon.com/images/I/71-ZF0-XFdL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-Sisal-Covered-Scratching-Basket-HCT002SW/dp/B098B1LRLD/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-Cat-Tower-Condo--Sisal-Covered](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-Sisal-Covered-Scratching-Basket-HCT002SW/dp/B098B1LRLD/?tag=cattreeguide-20>)
 
 ### Product Description 
-
 
 
 ### Our Rating For This Product
