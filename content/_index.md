@@ -1,10 +1,14 @@
+
 ---
 title: Cat Tree Guide - Find your Purrfect Cat Tree! 
 description: Welcome to Cat Tree Guide we review only the BEST cat trees out there so you don't have to.
+title: Vibration Plate Pro 
+description: Welcome to Vibration Plate Pro we review only the BEST Vibration Plates out there so you don't have to.
 ---
 
 {{< lead >}}
 Cat Tree Guide brings you the very best reviews, guides and tips for looking after your cat and ensuring their continued happiness.
+Here at Vibrationplatepro.com we bring you the very best reviews, guides and tips get healthier with vibration plates.
 {{< /lead >}}
 
 Hi welcome to [Cat Tree Guide](https://cattreeguide.com), my name is Percy and I am the proud owner of a beautiful long fur Siberian Cat called Pacha.  I have used many Cat trees over the years and thought it would be a good idea to start a website that reviewed only the best cat trees.   
@@ -639,9 +643,9 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Simple assembly: The kitty condo is easy to put together, with no need to secure it to the wall.|👉 The cat may not take to it: Even though you think your cat will love their new kitty condo, there's always a chance they won't take to it. If this happens, you'll be stuck with an expensive piece of furniture that your cat never uses.|
+| 👉 Sturdy and stable: Once assembled, the kitty condo is solid and does not wobble or tip over easily.|👉 It's a pricey investment: Kitty condos can be quite expensive, so if you're on a budget, this might not be the right choice for you.|
+| 👉 Cat-friendly design: The levels and steps on the kitty condo are designed with cats in mind, providing them with a fun place to explore and play.|👉 You'll need to find a place for it: Kitty condos are large pieces of furniture, so you'll need to make sure you have enough space in your home for it before making the purchase.|
 
 ---
  
@@ -654,7 +658,7 @@ TINWEI Cat Tree Scratching Toy Activity Centre Cat Tower Furniture Scratching Po
 
 ### Our Rating For This Product
 
-
+The TINWEI cat tree is a great size for our smaller cat, and it has had a lot of enjoyment. Our cat has enjoyed climbing, lounging, and playing with the three accessories. We haven't had any issues with it thus far. It took about 30 minutes to assemble, but it is basically like building any other piece of boxed furniture. This size is perfect for our 13 week old kitten, and it was worth the effort and the price.
 
 ⭐⭐⭐⭐⭐
 
@@ -670,23 +674,18 @@ TINWEI Cat Tree Scratching Toy Activity Centre Cat Tower Furniture Scratching Po
 
 ### Customers Say about this product
 
-> 
-
-
+> Relatively simple to assemble. The base was broken in the corner when it arrived unfortunately. It was right on the screw area so it broke even more when I was assembling. Luckily it seems ok for now and my cat is only 4 pounds so I'm hoping it will be fine. For the price, it's a nice cat tree.
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 Cat enjoys it: The cat seems to be entertained and engaged with the product, as intended.|👉 The installation instructions are not clear and can be confusing for some people.|
+| 👉 Not too complicated to assemble: Despite some confusion with the instructions, it wasn't overly difficult to put together. |👉 Some of the parts are very small and can be easily lost or broken.|
+| 👉 Sturdy and long-lasting: With proper installation, this product should last for a while and provide value for the price paid.|👉 The posts with screws already mounted in them can be a hazard if they are not installed properly.|
 
 ---
 
- 
   ## [Mwpo 63.8 Inches Multi-Level Cat Tree For Large](/Mwpo-63.8-Inches-Multi-Level-Cat-Tree-For-Large)
 [![Mwpo-63.8-Inches-Multi-Level-Cat-Tree-For-Large](<https://images-na.ssl-images-amazon.com/images/I/71OPC+yNMWL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/MWPO-Multi-Level-Sisal-Covered-Scratching-House-Beige/dp/B08KFZSBYC/?tag=cattreeguide-20>)[![Mwpo-63.8-Inches-Multi-Level-Cat-Tree-For-Large](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/MWPO-Multi-Level-Sisal-Covered-Scratching-House-Beige/dp/B08KFZSBYC/?tag=cattreeguide-20>)
 
@@ -696,7 +695,11 @@ The MWPO 63.8 inch Cat Tree is the perfect all-in-one spot for your cat to do al
 
 ### Our Rating For This Product
 
-
+My cat loved it. I love the tree, and it's tall so my cat can sit at the top or in nooks and crannies while I work.
+I got a little worried when I was putting the ladder on.
+Pros - Tall, easy to assemble, comes with its own wrench
+Cons - Expensive for its size, screws were hard to put in
+Suggestions - Better instructions for putting the ladder on would have been helpful.
 
 ⭐⭐⭐⭐⭐
 
@@ -719,11 +722,9 @@ The MWPO 63.8 inch Cat Tree is the perfect all-in-one spot for your cat to do al
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 The cat tree is pretty sturdy and can be anchored to the wall with the stability strap for extra safety.|👉 Shedding: The soft carpeting on the cat tree sheds quite a bit, making it difficult to keep clean.|
+| 👉  It comes with a tool for easy assembly and only takes around 45 minutes to put together.|👉 Kittens easily pull off hanging toys: The kittens have already pulled off the hanging mouse toys, making them a choking hazard.|
+| 👉 The carpet covering is soft and sheds minimally, making it easy to keep clean.|👉 Kittens easily pull off hanging toys: The kittens have already pulled off the hanging mouse toys, making them a choking hazard.|
 
 ---
 
