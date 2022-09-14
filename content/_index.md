@@ -737,7 +737,7 @@ The Yaheetech cat tree is a perfect way to give your pets a space that is all th
 
 ### Our Rating For This Product
 
-
+Assembly was easy, but I must warn you, there are a lot of pieces. I recommend using a socket wrench instead of an allen key, because assembly time is quite long with the allen key (think more than two hours). The price was a bit steep for me but I'm so happy I invested in a good product.
 
 ⭐⭐⭐⭐⭐
 
@@ -760,14 +760,12 @@ The Yaheetech cat tree is a perfect way to give your pets a space that is all th
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 The parts were standard quality and didn't have any issues.|👉 The risk of the plastic breaking if the bolts are tightened too hard.
+ |
+| 👉 Just gotta make sure not to tighten the bolts too hard so that the plastic doesn't break. |👉 The metal ring that attaches the strap to the wall ripped immediately.|
+| 👉 The material feels nice and I'm sure my cats will enjoy it|👉 There is a possibility that the cats might not enjoy it as much as anticipated.|
 
 ---
-
  
   ## [Feandrea Cat Tree Large Cat Tower 64.6 Inches](/Feandrea-Cat-Tree-Large-Cat-Tower-64.6-Inches)
 [![Feandrea-Cat-Tree-Large-Cat-Tower-64.6-Inches](<https://images-na.ssl-images-amazon.com/images/I/712DXUY5PiL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-Activity-Hammock-Removable-UPCT087W01/dp/B0876MGDMK/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Large-Cat-Tower-64.6-Inches](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-Activity-Hammock-Removable-UPCT087W01/dp/B0876MGDMK/?tag=cattreeguide-20>)
