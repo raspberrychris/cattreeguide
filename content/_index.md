@@ -886,7 +886,7 @@ FEANDREA Cat Tree, Cat Tower with Sisal-Covered Scratching Posts, Cat Bed, and C
 
 ### Our Rating For This Product
 
-
+I am really impressed with the design of this cat tree. It is perfect for a small space. I read that it was specifically designed for larger cats which is what I have. 
 
 ⭐⭐⭐⭐⭐
 
@@ -908,21 +908,18 @@ FEANDREA Cat Tree, Cat Tower with Sisal-Covered Scratching Posts, Cat Bed, and C
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 Sturdy and well-built|👉 The entrance and scratching post are too small for my cat as she ignores those parts, this cat house is more for smaller cats.|
+| 👉 Perfect for smaller cats|👉 My cat however did like the height of the tower part and actively took it as one of their sleeping spots when I put the tower next to a window.|
+| 👉 Cat loved the height of the tower|👉 Other than 1 screw that was difficult to install, it is sturdy, I have even sat on the tower part just to see how sturdy it was, and was surprised, though it wobbled due to my uneven flooring.|
 
 ---
 
- 
   ## [Petepela Cat Tree For Small Cats Plush Cat](/Petepela-Cat-Tree-For-Small-Cats-Plush-Cat)
 [![Petepela-Cat-Tree-For-Small-Cats-Plush-Cat](<https://images-na.ssl-images-amazon.com/images/I/718VfaMjRDL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PETEPELA-Small-Hammock-Scratching-Kittens/dp/B0B1T7QF9F/?tag=cattreeguide-20>)[![Petepela-Cat-Tree-For-Small-Cats-Plush-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PETEPELA-Small-Hammock-Scratching-Kittens/dp/B0B1T7QF9F/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+Constructed of beech wood and plush, the PETEPELA Cat Tree for Small Cats is perfect for kittens and cats alike. The small cat tree is covered with soft plush, raised rims provide kittens an immersive sleep and safety guarantee. It has a large sisal scratching platform, a scratching board is added to the small cat tree help cats to maintain their nail health. The large cat condo offers your pet a comfortable place to rest or lay on it's side. Apart from the sisal
 
 ### Our Rating For This Product
 
@@ -932,12 +929,14 @@ FEANDREA Cat Tree, Cat Tower with Sisal-Covered Scratching Posts, Cat Bed, and C
 
 ### Technical Details
 
+| Material       | Engineered Wood |
+|----------------|-----------------|
+| Brand          | PETEPELA        |
+| Target Species | Cat             |
 
 ### Customers Say about this product
 
-> 
-
-
+> This is exactly what I was hoping it would be! All 4 of my cats absolutely love it!
 
 ### Pros and Cons
 
