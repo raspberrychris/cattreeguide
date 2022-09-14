@@ -2,6 +2,7 @@
 ---
 title: Cat Tree Guide - Find your Purrfect Cat Tree! 
 description: Welcome to Cat Tree Guide we review only the BEST cat trees out there so you don't have to.
+toc:true
 ---
 
 {{< lead >}}
@@ -993,6 +994,8 @@ The Amazon Basics Cat Tree with Platform and Scratching Posts is a multi-level c
 NEGTTE Cat Tree is a multi-level cat condo with sisal scratching posts and perch. It includes 2 cubbies, 2 large padded platforms, 2 baskets, and 1 hammock to provide a comfortable space for your cats. At just 25" in height, it's the perfect fit for small spaces. With its sturdy base and tethered wall strap, it can easily be secured to any wall or door frame so that your cats can enjoy the view!
 
 ### Our Rating For This Product
+
+
 
 
 ⭐⭐⭐⭐⭐
