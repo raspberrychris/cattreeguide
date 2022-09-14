@@ -1179,12 +1179,17 @@ The YUNWEI Newest Cat Tree is a great addition to any home. Constructed with an 
 
 ### Technical Details
 
+| Material           | Plush, Sisal               |
+|--------------------|----------------------------|
+| Color              | Light Grey                 |
+| Brand              | Heybly                     |
+| Style              | Active,Hammock             |
+| Target Species     | Cat                        |
+| Product Dimensions | 18.1"L x 16.54"W x 30.74"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> My kittens love this. However the top part needs to lean on a wall to be stabilized. Other than that, I’m very pleased and it definitely serves its purpose
 
 ### Pros and Cons
 
