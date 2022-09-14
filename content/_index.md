@@ -877,12 +877,12 @@ If you have a large house and want to give your cats a space to climb, this is t
 
 ---
 
-  ## [Feandrea Cat Tree Cat Tower  Sisal-Covered Scratching](/Feandrea-Cat-Tree-Cat-Tower--Sisal-Covered-Scratching)
+  ## [Feandrea Cat Tree Cat Tower Sisal-Covered Scratching](/Feandrea-Cat-Tree-Cat-Tower--Sisal-Covered-Scratching)
 [![Feandrea-Cat-Tree-Cat-Tower--Sisal-Covered-Scratching](<https://images-na.ssl-images-amazon.com/images/I/81fnDzURA9L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT50W/dp/B07Q2B1BC4/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Cat-Tower--Sisal-Covered-Scratching](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT50W/dp/B07Q2B1BC4/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+FEANDREA Cat Tree, Cat Tower with Sisal-Covered Scratching Posts, Cat Bed, and Cave. This compact cat tree features two 100% wrapped sisal posts and a plush perch for tired kittens. Designed for large cats, it also includes a spacious cuddle cave and scratching post. The sturdy structure is made from high quality engineered wood and reinforced base plate for your peace of mind.
 
 ### Our Rating For This Product
 
@@ -892,12 +892,17 @@ If you have a large house and want to give your cats a space to climb, this is t
 
 ### Technical Details
 
+| Material           | Engineered Wood          |
+|--------------------|--------------------------|
+| Color              | Light Gray               |
+| Brand              | FEANDREA                 |
+| Target Species     | Cat                      |
+| Product Dimensions | 19.3"L x 12.6"W x 19.1"H |
+| Target Species     | Cat                      |
 
 ### Customers Say about this product
 
-> 
-
-
+> Very well built and attractive. Great for a smaller cat.
 
 ### Pros and Cons
 
