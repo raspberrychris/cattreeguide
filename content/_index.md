@@ -807,35 +807,37 @@ It is easy to set up and it is nice and tall for a tower. It also has a button s
 
 ### Product Description 
 
-
+Yaheetech Cat Tree Tower Kitten Condo Scratching Post with Hammock Tunnel 51in is the perfect pet climber for energetic kittens. It comes with a multilevel design, which expands the usable activity space. With a hammock, tunnel and ball toy for play time, this cat tree will keep your pet active and entertained.
 
 ### Our Rating For This Product
 
-
+I was impressed by the Yaheetech Cat Tree Tower Kitten Condo Scratching Post with Hammock Tunnel. I definitely noticed a difference in my kitten's activity level and energy levels just from putting this in their living space. I was worried about the stability because it is a tall tower, but then I found out that there is an anchor strap to secure it to the wall so that it won't topple over.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Particle board & plush & sisal rope |
+|----------------|-------------------------------------|
+| Color          | Beige                               |
+| Brand          | Yaheetech                           |
+| Style          | Hammock                             |
+| Item Weight    | 19.29 Pounds                        |
+| Target Species | Cat                                 |
 
 ### Customers Say about this product
 
-> 
-
-
+> The only complaint I have about this is that one of the rings on the ladder part came off within a week of getting it, leaving exposed staples that the kitties could get scratched on. Easy enough fix to glue it back on, but I wish it was more durable.
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 The cat condo is made of sturdy materials and is able to withstand rough play. |👉 The circle makes the cat get stuck: One of the potential cons of this product is that the circle in it can cause the cat to get stuck. This can happen if the cat is not careful or if it is not very agile.|
+| 👉 The cat condo has multiple levels and features, providing your cat with plenty of space to explore and play.|👉 The hammock only fits a kitten: Another potential con of this product is that the hammock included with it only fits a kitten, so it would not be suitable for larger cats. |
+| 👉 The cat condo is carpeted, providing a soft surface for your cat to lounge on. |👉 The carpet may not hold up over time: Another potential issue with this product is that the carpeting on it may not hold up over time, potentially creating an issue for those who have pets who like to scratch or claw at things.|
 
 ---
-
  
   ## [Feandrea Cat Tree 66.1-Inch Large Cat Tower ](/Feandrea-Cat-Tree-66.1-Inch-Large-Cat-Tower-)
 [![Feandrea-Cat-Tree-66.1-Inch-Large-Cat-Tower-](<https://images-na.ssl-images-amazon.com/images/I/71kDg00-cWL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-66-1-Inch-Scratching-Perches-Multi-Level/dp/B09YLP5F38/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-66.1-Inch-Large-Cat-Tower-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-66-1-Inch-Scratching-Perches-Multi-Level/dp/B09YLP5F38/?tag=cattreeguide-20>)
