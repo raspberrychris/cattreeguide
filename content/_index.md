@@ -923,7 +923,7 @@ Constructed of beech wood and plush, the PETEPELA Cat Tree for Small Cats is per
 
 ### Our Rating For This Product
 
-
+I was looking for a small cat tree for my four-leg friends and found the perfect one. It has plenty of room for them to climb and sleep, and only took me about an hour to assemble it by myself. They got used to it right away, and since then they've been sleeping on it all day. I think it's a great investment, and I highly recommend it.
 
 ⭐⭐⭐⭐⭐
 
@@ -942,71 +942,74 @@ Constructed of beech wood and plush, the PETEPELA Cat Tree for Small Cats is per
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 Great size. Plenty of room for all four cats to play on it, but not too big that it takes up a lot of room.|👉 Could be too small for some larger cats|
+| 👉 It's exactly as advertised: The product is exactly as described and performs as intended.|👉 Design may not be to everyone's taste|
+| 👉 It's durable: The reviewer's cats have been playing with the toy for some time without any issues.|👉 Quality of the materials could be better.|
 
 ---
 
- 
   ## [Amazon Basics Large Dual Platform Cat Condo Tree](/Amazon-Basics-Large-Dual-Platform-Cat-Condo-Tree)
 [![Amazon-Basics-Large-Dual-Platform-Cat-Condo-Tree](<https://images-na.ssl-images-amazon.com/images/I/71khPAELzdS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/AmazonBasics-Cat-Tree-Platform-Beige/dp/B07G3R2V3C/?tag=cattreeguide-20>)[![Amazon-Basics-Large-Dual-Platform-Cat-Condo-Tree](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/AmazonBasics-Cat-Tree-Platform-Beige/dp/B07G3R2V3C/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+The Amazon Basics Cat Tree with Platform and Scratching Posts is a multi-level cat structure that provides space for your pet to relax, play, and climb. The tiered platforms offers plenty of space for your cat to stretch out or lounge about. It also helps keep your furniture and carpets free of damage. There are two scratching posts included that are made of natural jute fiber. This material is great for keeping nails healthy and preventing the need to claw furniture or curtains. The neutral color
 
 ### Our Rating For This Product
 
-
+ This cat tree has plenty of room for your cats to climb and sleep, and only took me about an hour to assemble it by myself. My cats got used to it right away, and since then they've been sleeping on it all day. I think it's a great investment, and I highly recommend it.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Jute          |
+|----------------|---------------|
+| Color          | Beige         |
+| Brand          | Amazon Basics |
+| Style          | Dual Platform |
+| Item Weight    | 28.44 Pounds  |
+| Target Species | Cat           |
 
 ### Customers Say about this product
 
-> 
-
-
+> I loved how simple the assembly was and how the fabric feels! It’s not cheap looking in person or wobbly ! I just overall love it for me a first time cat owner and buying a big purchase for our 6 month old kitten name Ollie
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 Easy to assemble: The cat tree is easy to assemble, with all parts fitting together well.|👉 The carpeting is quite thin, which may not be ideal for all cats.|
+| 👉 Lots of sisal posts: There are plenty of sisal posts for cats to scratch and climb on.|👉 The perches mounted on sisal posts are a little wobbly, which may cause some safety concerns.|
+| 👉 Cats took to it right away: My cats immediately took to the cat tree and love spending time in it.|👉 Durability may be an issue with some cats.|
 
 ---
 
- 
   ## [Negtte Cat Tree For Indoor Cats- Multi-Level Cat](/Negtte-Cat-Tree-For-Indoor-Cats--Multi-Level-Cat)
 [![Negtte-Cat-Tree-For-Indoor-Cats--Multi-Level-Cat](<https://images-na.ssl-images-amazon.com/images/I/71VSKAhAUJS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/NEGTTE-Indoor-Cats-Multi-Level-Condo/dp/B092VPM7R8/?tag=cattreeguide-20>)[![Negtte-Cat-Tree-For-Indoor-Cats--Multi-Level-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/NEGTTE-Indoor-Cats-Multi-Level-Condo/dp/B092VPM7R8/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+NEGTTE Cat Tree is a multi-level cat condo with sisal scratching posts and perch. It includes 2 cubbies, 2 large padded platforms, 2 baskets, and 1 hammock to provide a comfortable space for your cats. At just 25" in height, it's the perfect fit for small spaces. With its sturdy base and tethered wall strap, it can easily be secured to any wall or door frame so that your cats can enjoy the view!
 
 ### Our Rating For This Product
-
 
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Plush, Wood, Sisal, Fabric |
+|----------------|----------------------------|
+| Color          | Dark grey                  |
+| Brand          | NEGTTE                     |
+| Style          | Luxury,Hammock             |
+| Item Weight    | 37.5 Pounds                |
+| Target Species | Cat                        |
 
 ### Customers Say about this product
 
-> 
-
-
+> What I liked is the ease in which it all went together. My only dislike is that my largest cat does not go to the top unless I place him there due to the fact that there is not a platform for him to launch himself from. But the Boyz do seem to like it very much.
 
 ### Pros and Cons
 
@@ -1020,13 +1023,12 @@ Constructed of beech wood and plush, the PETEPELA Cat Tree for Small Cats is per
 
 ---
 
- 
   ## [Petepela Cat Tree 5-Tier Floor To Ceiling Cat](/Petepela-Cat-Tree-5-Tier-Floor-To-Ceiling-Cat)
 [![Petepela-Cat-Tree-5-Tier-Floor-To-Ceiling-Cat](<https://images-na.ssl-images-amazon.com/images/I/51dG2AAcLzL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PETEPELA-Adjustable-Featuring-Scratching-Interactive/dp/B09SYQZTS5/?tag=cattreeguide-20>)[![Petepela-Cat-Tree-5-Tier-Floor-To-Ceiling-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PETEPELA-Adjustable-Featuring-Scratching-Interactive/dp/B09SYQZTS5/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+The PETEPELA Cat Tower is a great way to provide your cat with climbing and lounging areas. The entire cat tree consists of 5 levels of platforms, each with a height difference of 17.3 inches per level. The tension rod on the top can be adjusted to a preferred height from high to low (95-109 Inches) and the posts are thicker than other posts on the market, making this tree both sturdy and durable.
 
 ### Our Rating For This Product
 
@@ -1036,25 +1038,27 @@ Constructed of beech wood and plush, the PETEPELA Cat Tree for Small Cats is per
 
 ### Technical Details
 
+| Material           | Plush, Sisal             |
+|--------------------|--------------------------|
+| Color              | Beige                    |
+| Brand              | PETEPELA                 |
+| Item Weight        | 8.7 Kilograms            |
+| Target Species     | Cat                      |
+| Product Dimensions | 17.3"L x 9.8"W x 107.9"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> If you have a little cat, this is perfect! I was able to make it more sturdy depending on the position of the boards. Thing is, boards are small! Perch too. I hope it grows with my 🐈‍⬛
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 The bed at the top is perfect for sitting and enjoying the view.|👉 The cat tower is not tall enough to reach the ceiling, as advertised.|
+| 👉 The height is adjustable, so you can customize it to fit your needs.|👉 The cat tower is difficult to assemble.|
+| 👉 Installation was easy overall, though I did have a few issues with the extension tubes not fitting properly.|👉 The top of the cat tower is too small for sleeping and does not have a comfortable bedding area.|
 
 ---
-
  
   ## [Heybly Cat Tree 73 Inches Xxl Large Cat](/Heybly-Cat-Tree-73-Inches-Xxl-Large-Cat)
 [![Heybly-Cat-Tree-73-Inches-Xxl-Large-Cat](<https://images-na.ssl-images-amazon.com/images/I/61RmWp0ro6L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-inches-Multi-Level-Furniture-Scratching/dp/B09Y8GRZCF/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-73-Inches-Xxl-Large-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-inches-Multi-Level-Furniture-Scratching/dp/B09Y8GRZCF/?tag=cattreeguide-20>)
