@@ -2,8 +2,6 @@
 ---
 title: Cat Tree Guide - Find your Purrfect Cat Tree! 
 description: Welcome to Cat Tree Guide we review only the BEST cat trees out there so you don't have to.
-title: Vibration Plate Pro 
-description: Welcome to Vibration Plate Pro we review only the BEST Vibration Plates out there so you don't have to.
 ---
 
 {{< lead >}}
@@ -803,7 +801,7 @@ It is easy to set up and it is nice and tall for a tower. It also has a button s
 | 👉 The platforms themselves are too small if I'm being honest, but the cats are a bit smaller than other kitties so ut will work for awhile |👉 The condo got an adjustment: One of our cats lives to look out the window, so we had to adjust the condo accordingly.|
 
 ---
- 
+
   ## [Yaheetech Cat Tree House Condo Perch Pet Tower](/Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower)
 [![Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower](<https://images-na.ssl-images-amazon.com/images/I/61xAVHxH-YL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-House-Condo-Perch-Kittens/dp/B07WZK5C4H/?tag=cattreeguide-20>)[![Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-House-Condo-Perch-Kittens/dp/B07WZK5C4H/?tag=cattreeguide-20>)
 
