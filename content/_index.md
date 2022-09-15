@@ -1069,7 +1069,7 @@ This luxurious cat tree is a luxury 3-level condo designed for indoor cats. It's
 
 ### Our Rating For This Product
 
-
+This is a pretty tall cat tree and my cats love it. It can be wobbly and I wouldn't recommend it for a small apartment or if the cats are aggressive, but otherwise the cats really seem to like it. My two boys have been using it for a month now and it's still intact.
 
 ⭐⭐⭐⭐⭐
 
@@ -1082,16 +1082,15 @@ This luxurious cat tree is a luxury 3-level condo designed for indoor cats. It's
 
 ### Customers Say about this product
 
-> Our cats love it! Our older cat just sleeps in on but our younger one loves to hang up side down and “thump” the toys with his back feel! Best $150 I have spent in a long time.
+> Our cats love it! Our older cat just sleeps in on but our younger one loves to hang up side down and “thump” the toys with his back feel! Best thing I have spent money on in a long time.
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
+| 👉 The construction is good and it comes with extra parts.|👉 Not always stable: The base is too small for such a tall cat tree, which makes it less stable overall.|
+| 👉 It's easy to put together because the parts are labeled and the directions are clear.|👉 Too low hammock: The kitties will not lay on the hammock because it is too low for them to be comfortable.|
+| 👉 The cat tree is tall, which is great for full-grown cats.|👉 Wall strap not long enough: The wall strap is not long enough to provide adequate support for the cat tree, making it more likely to tip over.|
 
 ---
 
