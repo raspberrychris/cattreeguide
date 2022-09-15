@@ -1168,6 +1168,7 @@ After figuring out the difficult assembly process, it was totally worth it. This
 
 ### Product Description 
 
+Built for small kittens, the Heybly Cat Tree is perfect for your apartment or bedroom. The small-sized cat condo includes a circle hammock, lying platform, toy fur ball and scratching posts wrapped in sisal. Plush toys with bells make no noise to disturb you while your cat plays. Stability is paramount as this cat tower features reinforced climbing frame base and anti-toppling devices.
 
 ### Our Rating For This Product
 
@@ -1197,52 +1198,14 @@ After figuring out the difficult assembly process, it was totally worth it. This
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Hey-Brother Cat Tree  Sisal Scratching Posts Cat](/Hey-Brother-Cat-Tree--Sisal-Scratching-Posts-Cat)
 [![Hey-Brother-Cat-Tree--Sisal-Scratching-Posts-Cat](<https://images-na.ssl-images-amazon.com/images/I/71Z2mn5E+qS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Scratching-Multi-Level-Basket-MPJ014M/dp/B08YX86TNN/?tag=cattreeguide-20>)[![Hey-Brother-Cat-Tree--Sisal-Scratching-Posts-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Scratching-Multi-Level-Basket-MPJ014M/dp/B08YX86TNN/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
-
-### Our Rating For This Product
-
-
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
-> 
-
-
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
-
----
-
- 
-  ## [Furhaven Pet Toy For Cats And Kittens -](/Furhaven-Pet-Toy-For-Cats-And-Kittens--)
-[![Furhaven-Pet-Toy-For-Cats-And-Kittens--](<https://images-na.ssl-images-amazon.com/images/I/51RVJd6ZcsL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Furhaven-Pet-Toy-Cats-Kittens/dp/B09MZTL7KF/?tag=cattreeguide-20>)[![Furhaven-Pet-Toy-For-Cats-And-Kittens--](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Furhaven-Pet-Toy-Cats-Kittens/dp/B09MZTL7KF/?tag=cattreeguide-20>)
-
-### Product Description 
-
-
+For your cats to sharpen their claws and climb to their heart's content, the Hey-brother Cat Tree with Sisal Scratching Posts & Cat Tower with Scratching Board is exactly what you need. With multiple scratching posts and a scratching board, this cat condo will be a great companion for your cat's growth. For your cats to relax in, this durable cat tower offers 1 roomy compartment for plenty of entertainment.
 
 ### Our Rating For This Product
 
@@ -1252,12 +1215,16 @@ After figuring out the difficult assembly process, it was totally worth it. This
 
 ### Technical Details
 
+| Material           | Engineered Wood          |
+|--------------------|--------------------------|
+| Color              | Beige                    |
+| Brand              | Hey-brother              |
+| Target Species     | Cat                      |
+| Product Dimensions | 17.7"L x 17.7"W x 36.6"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> Seems very solid we purchased for our 9 week old kitten- he’s not comfortable going into the basket or hanging type area, but he is still very small 1 1/2 lbs.
 
 ### Pros and Cons
 
@@ -1267,19 +1234,17 @@ After figuring out the difficult assembly process, it was totally worth it. This
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Vesper Cat Tree High Base Black  52046](/Vesper-Cat-Tree-High-Base-Black -52046)
 [![Vesper-Cat-Tree-High-Base-Black -52046](<https://images-na.ssl-images-amazon.com/images/I/71OOcmmttGL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Vesper-Furniture-Black-V-High-Base/dp/B00SOTG26K/?tag=cattreeguide-20>)[![Vesper-Cat-Tree-High-Base-Black -52046](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Vesper-Furniture-Black-V-High-Base/dp/B00SOTG26K/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+Vesper cat furniture is a luxurious, high-quality brand that offers beautiful and long-lasting products. The use of 100% recycled paper in the construction of Vesper cat furniture minimizes environmental impact while providing lightweight and durable items. Unlike other brands, Vesper cat furniture is made with only high-density polyethylene foam which promotes healthy air quality and easy cleaning.
 
 ### Our Rating For This Product
+
 
 
 
@@ -1287,12 +1252,17 @@ After figuring out the difficult assembly process, it was totally worth it. This
 
 ### Technical Details
 
+| Material       | Engineered Wood, Plush |
+|----------------|------------------------|
+| Color          | Black                  |
+| Brand          | Catit                  |
+| Style          | High Base              |
+| Item Weight    | 40.5 Pounds            |
+| Target Species | Cat                    |
 
 ### Customers Say about this product
 
-> 
-
-
+> Instructions aren’t very clear but once you get the hang of it it’s easy enough to put together. I did it alone in probably under an hour. Both my cats seem to like it so far. Looks much better than my old carpet-covered cat tree.
 
 ### Pros and Cons
 
