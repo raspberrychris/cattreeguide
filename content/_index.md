@@ -1133,11 +1133,11 @@ I would say I had an overall positive experience with the tree. It took me about
 
 ### Product Description 
 
-The YUNWEI Newest Cat Tree is a great addition to any home. Constructed with an innovative design, this cat tree provides a high-quality platform for your cats to scratch, claw and play. Made of durable material, this cat tree will provide your cats with hours of entertainment and relaxation. The multi-level cat tree includes a condo and hammock for your feline friends to take their naps on. With its grey color and clean lines, this cat tree is the perfect
+The YUNWEI Newest Cat Tree is a great addition to any home. Constructed with an innovative design, this cat tree provides a high-quality platform for your cats to scratch, claw and play. Made of durable material, this cat tree will provide your cats with hours of entertainment and relaxation. The multi-level cat tree includes a condo and hammock for your feline friends to take their naps on. With its grey color and clean lines, this cat tree is perfect for your furry friends.
 
 ### Our Rating For This Product
 
-
+After figuring out the difficult assembly process, it was totally worth it. This is a sturdy tree and the hammock is a definite multiple-cat winner. The condo is large enough for my one cat to comfortably sprawl out in. I'm pretty sure he'll use this every day.
 
 ⭐⭐⭐⭐⭐
 
