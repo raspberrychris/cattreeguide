@@ -1282,7 +1282,7 @@ Never worry about your cat scratching your furniture again. This cat tower is su
 
 ### Our Rating For This Product
 
-
+The size of this cat house is perfect for my two large cats. It's well padded, the cubbies are big enough, and it looks good too! That said, I do have to say that the footprint on the bottom is small which makes the whole unit feel cramped, wobbly, and unsteady. My cats also don't seem to care for it, which is unusual because they've loved every other kitty tower we've had in the past.
 
 ⭐⭐⭐⭐⭐
 
@@ -1347,7 +1347,6 @@ Never worry about your cat scratching your furniture again. This cat tower is su
 
 ---
 
- 
   ## [Hey-Brother Multi-Level Cat Tree Large Cat Tower ](/Hey-Brother-Multi-Level-Cat-Tree-Large-Cat-Tower-)
 [![Hey-Brother-Multi-Level-Cat-Tree-Large-Cat-Tower-](<https://images-na.ssl-images-amazon.com/images/I/61IIZu+Ya9S._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Multi-Level-Hammock-Scratching-MPJ0026M/dp/B08FRF63CL/?tag=cattreeguide-20>)[![Hey-Brother-Multi-Level-Cat-Tree-Large-Cat-Tower-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Multi-Level-Hammock-Scratching-MPJ0026M/dp/B08FRF63CL/?tag=cattreeguide-20>)
 
