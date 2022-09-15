@@ -1152,7 +1152,7 @@ After figuring out the difficult assembly process, it was totally worth it. This
 
 ### Customers Say about this product
 
-> I have rescued Siamese and they were a bit picky go figure. Well they love their little tree house. It’s perfect for these kitties. I don’t know how they will fit as adults but so far they approve!
+> I have rescued Siamese and they were a bit picky go figure. Well they love their little tree house. It’s perfect for these kitties. I don’t know how they will fit as adults but so far they approve.
 
 ### Pros and Cons
 
