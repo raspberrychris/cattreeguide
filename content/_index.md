@@ -1158,9 +1158,9 @@ After figuring out the difficult assembly process, it was totally worth it. This
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Plenty of different surfaces for them to use |👉  A bit hard to put together|
+| 👉 It's sturdy once it's put together|👉 The screw for the top part sticks out a tiny bit|
+| 👉 The only issue is that the screw for the top part sticks out a tiny bit|👉 You may need an extra person for helping, holding things, or handing you things|
 
 ---
 
