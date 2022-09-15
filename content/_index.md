@@ -1230,9 +1230,9 @@ I bought this because my cats were using the tops of their cat tree as scratchin
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Sturdy and well-made|👉 The basket on the side may become weak as my kitten ages.|
+| 👉 Easy to assemble|👉 I have a feeling that the assembly instructions may not be clear for everyone.|
+| 👉 Good value for the price|👉 It is possible that the puppy may pull too hard on the tree and cause it to topple over.|
 
 ---
  
@@ -1245,8 +1245,7 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 
 ### Our Rating For This Product
 
-
-
+Vesper Cat Furniture is perfect if you're on the lookout for a cat tower that will look nice with your home's decor and isn't ugly. It's easy to clean, and the soft parts are detachable and can be cleaned or replaced. The only downside is it's a bit more expensive than other towers, but I think it's worth investing in because it is durable and will last a long time unlike trees made of carpet.
 
 ⭐⭐⭐⭐⭐
 
@@ -1272,17 +1271,14 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Hey-Brother Xl Size Cat Tree 73.4 Inch Cat](/Hey-Brother-Xl-Size-Cat-Tree-73.4-Inch-Cat)
 [![Hey-Brother-Xl-Size-Cat-Tree-73.4-Inch-Cat](<https://images-na.ssl-images-amazon.com/images/I/61anKPQfV2L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Perches-Scratching-Activity-MPJ0032M/dp/B08FRGF4KF/?tag=cattreeguide-20>)[![Hey-Brother-Xl-Size-Cat-Tree-73.4-Inch-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Perches-Scratching-Activity-MPJ0032M/dp/B08FRGF4KF/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+Never worry about your cat scratching your furniture again. This cat tower is supported by sturdy posts, sturdy and stable; enlarged baseboard to avoid wobbling or tipping over, strengthened with battens to ensure overall stability; anti-toppling fittings ensure double safety. Sisal-covered scratching posts are perfect for your cats to scratch and grind their claws, no more scratching your furniture! It also helps develop a positive scratching habit so your cats stay active and entertained. 3 roomy condos offer luxurious
 
 ### Our Rating For This Product
 
@@ -1292,12 +1288,17 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 
 ### Technical Details
 
+| Material           | Particleboard, Plush, Sisal |
+|--------------------|-----------------------------|
+| Color              | Light Gray                  |
+| Brand              | FEANDREA                    |
+| Item Weight        | 16.1 Pounds                 |
+| Target Species     | Cat                         |
+| Product Dimensions | 18.1"L x 16.1"W x 33.1"H    |
 
 ### Customers Say about this product
 
-> 
-
-
+> The box is extremely heavy so use good lifting techniques or get a dolly. Easy put together with detailed instructions with illustrations. Product as described and way bigger than I thought it would be. Enjoy the pic. There are 2 cats in the tree, one of them is hard to see.
 
 ### Pros and Cons
 
@@ -1307,11 +1308,8 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Yaheetech 23.5In Cat Tree Tower Cat Condo ](/Yaheetech-23.5In-Cat-Tree-Tower-Cat-Condo-)
 [![Yaheetech-23.5In-Cat-Tree-Tower-Cat-Condo-](<https://images-na.ssl-images-amazon.com/images/I/81uhLxFAReS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B098XH2F54/?tag=cattreeguide-20>)[![Yaheetech-23.5In-Cat-Tree-Tower-Cat-Condo-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B098XH2F54/?tag=cattreeguide-20>)
 
@@ -1327,12 +1325,17 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 
 ### Technical Details
 
+| Material       | P2 particle board, plush fabric, sisal rope |
+|----------------|---------------------------------------------|
+| Color          | Beige                                       |
+| Brand          | Yaheetech                                   |
+| Style          | Modern                                      |
+| Item Weight    | 13.2 Pounds                                 |
+| Target Species | Cat                                         |
 
 ### Customers Say about this product
 
-> 
-
-
+> My cat loves this new cat condo. She looks so cute when she is on it
 
 ### Pros and Cons
 
@@ -1341,8 +1344,6 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 | 👉 |👉 |
 | 👉 |👉 |
 | 👉 |👉 |
-
-
 
 ---
 
