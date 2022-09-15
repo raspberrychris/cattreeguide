@@ -1194,9 +1194,9 @@ My little kittens love this thing and I love them so it's a win-win. The instruc
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Adorable|👉 It is too small for a big cat. |
+| 👉 Easy to put together|👉 It's easy for bigger cats to tip it over. |
+| 👉 Great for smaller cats|👉 The scratching areas might not be able to take a lot of wear and tear from bigger cats |
 
 ---
  
