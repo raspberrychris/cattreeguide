@@ -1103,7 +1103,7 @@ This cat tree is sure to provide hours of fun for your furry friend. The base is
 
 ### Our Rating For This Product
 
-
+I would say I had an overall positive experience with the tree. It took me about an hour to assemble and it was pretty easy. I like how stable it is and as expected, my cat loves it. The only thing that I didn't enjoy about the tree was that the posts weren't quite heavy enough so the whole thing is a bit wobbly when my cat is on top. Once my cat gets used to this, it won't be a problem. Overall, I'm happy with the product.
 
 ⭐⭐⭐⭐⭐
 
@@ -1122,9 +1122,9 @@ This cat tree is sure to provide hours of fun for your furry friend. The base is
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 It's just like the picture.|👉 The hammock may not be able to support the weight of larger cats.|
+| 👉 My cat imminently started climbing as i was building it.|👉 It is top-heavy and must be drilled into the wall, which could damage walls or floors.|
+| 👉 Overall a wonderful cat tree with a wonderful price! I am 5'10 for scale|👉 There is only one screw necessary to hold it in place, so it may not be very sturdy.|
 
 ---
  
