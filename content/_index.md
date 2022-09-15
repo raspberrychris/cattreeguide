@@ -1172,7 +1172,7 @@ Built for small kittens, the Heybly Cat Tree is perfect for your apartment or be
 
 ### Our Rating For This Product
 
-
+My little kittens love this thing and I love them so it's a win-win. The instructions are not perfect, but they're not horrible. That being said, my two little kittens took to it right away and have made use of the whole thing. They love the ball, they love climbing all over it and they use the scratch posts. They are both in the basket right now. The price point is excellent and this is a great purchase.
 
 ⭐⭐⭐⭐⭐
 
@@ -1209,7 +1209,7 @@ For your cats to sharpen their claws and climb to their heart's content, the Hey
 
 ### Our Rating For This Product
 
-
+I bought this because my cats were using the tops of their cat tree as scratching posts and I liked the idea of them having their own scratch post. My two little kittens took to it quickly, which is a good sign. The instructions are not perfect, but that's typical for kits like this. They love the ball and climb all over it. Highly recommend this kit for the price point!
 
 ⭐⭐⭐⭐⭐
 
@@ -1712,12 +1712,17 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 
 ### Technical Details
 
+| Material       | Engineered Wood, Plush |
+|----------------|------------------------|
+| Color          | Black                  |
+| Brand          | Catit                  |
+| Style          | High Base              |
+| Item Weight    | 40.5 Pounds            |
+| Target Species | Cat                    |
 
 ### Customers Say about this product
 
-> 
-
-
+> Suited for a small cat or kitten. My cat took right to it. I'm happy w this purchase.
 
 ### Pros and Cons
 
@@ -1727,11 +1732,8 @@ Vesper cat furniture is a luxurious, high-quality brand that offers beautiful an
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Pequlti 51.4 Inches Modern Cat Tree Premium 6](/Pequlti-51.4-Inches-Modern-Cat-Tree-Premium-6)
 [![Pequlti-51.4-Inches-Modern-Cat-Tree-Premium-6](<https://images-na.ssl-images-amazon.com/images/I/61Wo03Cik3L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PEQULTI-Premium-Covered-Scratching-Spacious/dp/B098JGL1YY/?tag=cattreeguide-20>)[![Pequlti-51.4-Inches-Modern-Cat-Tree-Premium-6](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PEQULTI-Premium-Covered-Scratching-Spacious/dp/B098JGL1YY/?tag=cattreeguide-20>)
 
