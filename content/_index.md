@@ -1429,7 +1429,7 @@ It's an awesome product, but it's not for a full grown cat. My cat is an average
 
 ### Product Description 
 
-
+The Hey-brother Multi-level Cat Tree Condo for Large Cats is a space-saving, versatile and multifunctional cat tree that offers scratching, climbing, sleeping and exercising options. The unit has a step-like jump multi-level design to help your pet with its natural instincts. It also has a roomy condo on the bottom floor and two top large platforms with an internal extra-thick mat. It includes interactive jingly balls and sisal twine to play with as well
 
 ### Our Rating For This Product
 
@@ -1439,12 +1439,17 @@ It's an awesome product, but it's not for a full grown cat. My cat is an average
 
 ### Technical Details
 
+| Material       | Engineered Wood |
+|----------------|-----------------|
+| Color          | Beige           |
+| Brand          | Hey-brother     |
+| Style          | Hammock         |
+| Item Weight    | 18.5 Kilograms  |
+| Target Species | Cat             |
 
 ### Customers Say about this product
 
-> 
-
-
+> Surprisingly it's very sturdy and stable for the use of two large cats. It was easy to assemble. The cats love to sleep on the top at night when I keep accidently kicking them off my bed lol! I plan to move it to a sunnier spot since my cats love to sun bathe!
 
 ### Pros and Cons
 
@@ -1454,11 +1459,8 @@ It's an awesome product, but it's not for a full grown cat. My cat is an average
 | 👉 |👉 |
 | 👉 |👉 |
 
-234
-
 ---
 
- 
   ## [Yaheetech 62In Extra Large Cat Tree Condo ](/Yaheetech-62In-Extra-Large-Cat-Tree-Condo-)
 [![Yaheetech-62In-Extra-Large-Cat-Tree-Condo-](<https://images-na.ssl-images-amazon.com/images/I/51hBkwPtRbL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B07TSBMKKF/?tag=cattreeguide-20>)[![Yaheetech-62In-Extra-Large-Cat-Tree-Condo-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B07TSBMKKF/?tag=cattreeguide-20>)
 
