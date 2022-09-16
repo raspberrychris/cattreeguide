@@ -1433,7 +1433,7 @@ The Hey-brother Multi-level Cat Tree Condo for Large Cats is a space-saving, ver
 
 ### Our Rating For This Product
 
-
+It’s a great choice if you need to separate two cats that hate each other. The size is perfect, it’s not too wide or tall, so it can be placed in any room. My cats are 15-17 lbs and they fit with room to spare. I would recommend getting some adhesive hooks to fix this to the wall, since it is big and doesn't come with screws. But either way, my cats are happy which means I'm happy.
 
 ⭐⭐⭐⭐⭐
 
@@ -1466,22 +1466,27 @@ The Hey-brother Multi-level Cat Tree Condo for Large Cats is a space-saving, ver
 
 ### Product Description 
 
-
+The Yaheetech Cat Tree Tower Condo is designed for one or two large kittens. The max weight capacity of this cat tower is 66lb. This cat tree is constructed with particle boards to ensure stability. Anti-toppling fittings are included for double security. This cat activity tree has a large cushioned platform bed with raised edging and a soft comfy basket at the bottom.
 
 ### Our Rating For This Product
 
-
+This is one of the best cat trees I've ever seen. It is a great height for both perching and scratching. I am cautious about bolting it in, but it's held up without any problems. I would have liked the enclosed house to be more square, with no hammock, and a ball toy at the bottom. My cats love this tower and it is pretty stable as long as you follow the instructions to put it together. I would recommend this for any cat-owning family. One tower should do the trick.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Particle Board & Plush & Sisal Rope |
+|----------------|-------------------------------------|
+| Color          | Beige                               |
+| Brand          | Yaheetech                           |
+| Style          | Hammock                             |
+| Item Weight    | 37.08 Pounds                        |
+| Target Species | Cat                                 |
 
 ### Customers Say about this product
 
-> 
-
-
+> I love all the many activities and extras that most trees don't have. I didn't like that the screw in the house part sticks up and can hurt the kitty. I'm going to cut off the extra or put 2 washers on it for safety.
 
 ### Pros and Cons
 
@@ -1491,11 +1496,8 @@ The Hey-brother Multi-level Cat Tree Condo for Large Cats is a space-saving, ver
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Hey-Brother Cat Tree Cat Tower  2 Cozy](/Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy)
 [![Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy](<https://images-na.ssl-images-amazon.com/images/I/71FdPXre-mL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)[![Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)
 
@@ -1511,12 +1513,17 @@ The Hey-brother Multi-level Cat Tree Condo for Large Cats is a space-saving, ver
 
 ### Technical Details
 
+| Material           | Engineered Wood           |
+|--------------------|---------------------------|
+| Color              | Beige                     |
+| Brand              | Hey-brother               |
+| Target Species     | Cat                       |
+| Product Dimensions | 15.75"L x 11.8"W x 31.5"H |
+| Target Species     | Cat                       |
 
 ### Customers Say about this product
 
-> 
-
-
+> Kinda small for a full grown cat but our cat and kitten lay on it everyday. Very easy to put together, even without the instructions.
 
 ### Pros and Cons
 
