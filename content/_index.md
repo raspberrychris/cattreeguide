@@ -1304,9 +1304,9 @@ The size of this cat house is perfect for my two large cats. It's well padded, t
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 It's sturdy and stable, perfect for when your cats are running around..|👉 The tree may not be sturdy enough for larger cats: While the tree is advertised as being able to hold up to multiple large cats, some reviewers have found that their larger cats have toppled it over.|
+| 👉 It's easy to move around|👉 It may be difficult to assemble: Some people have reported that the instructions for assembling the cat tree are confusing, and that it takes several hours to put together.|
+| 👉 The top beds and hammock are stable enough to hold a bigger cat's weight, so everyone can enjoy this tree.|👉 It may take up too much space in your home: This cat tree is large and can take up a fair amount of space in your home, so if you're limited on square f|
 
 ---
 
@@ -1315,11 +1315,11 @@ The size of this cat house is perfect for my two large cats. It's well padded, t
 
 ### Product Description 
 
-
+With a compact size, this cat tree is ideal for small spaces. The scratching posts are soft and covered with sisal to give your cats a place to scratch and play. Each post has a different height level so your cats can choose what's right for them. It also includes a top perch that’s the perfect height for medium-sized cats to lie down or stretch their legs.
 
 ### Our Rating For This Product
 
-
+It took me about 2 hours to put it together, but it is heavy and somewhat difficult to get it up the stairs. Overall, its a good purchase, and my cat loves playing with it!
 
 ⭐⭐⭐⭐⭐
 
@@ -1341,9 +1341,9 @@ The size of this cat house is perfect for my two large cats. It's well padded, t
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Provides a space for your cat to sit next to you while you work from home. |👉 Too small for some cats: This product may be too small for some cats, as they may not be able to fit inside or may find it a tight fit.|
+| 👉 Keeps your cat off of your desk and away from any valuable or sensitive items.|👉 Cats may not use it much: Some cats may not use this product much, as they preferto sit on top of the bed rather than inside of it.|
+| 👉 The bed on top is spacious enough for most cats to sleep comfortably in.|👉 Not all cats will like it: Not all cats will like this product, as some prefer to roam around freely and not be confined to one area.|
 
 ---
 
