@@ -1389,22 +1389,27 @@ Give your cat a place to feel like the king of the world with this Hey-brother M
 
 ### Product Description 
 
-
+Provide your cat with a 3-level activity center, perfect for snuggling up on or napping. This 27.5-inch tall structure will also make a great window bed for cats. The sisal rope scratching post will keep your cat's nails in shape and keep them away from furniture so that they don't scratch their way through it. The cheese wheel on the middle platform has 3 balls inside with an enticing flavor that cats just can't resist!
 
 ### Our Rating For This Product
 
-
+It's an awesome product, but it's not for a full grown cat. My cat is an average size and couldn't use this at all. It's really for kittens. I'm disappointed because I think it would be perfect for my kitten
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material           | Engineered Wood, Sisal Rope, Polyester, Plastic |
+|--------------------|-------------------------------------------------|
+| Color              | Beige                                           |
+| Brand              | PETMAKER                                        |
+| Item Weight        | 15.56 Pounds                                    |
+| Target Species     | Cat                                             |
+| Product Dimensions | 19.5"L x 19.5"W x 27.5"H                        |
 
 ### Customers Say about this product
 
-> 
-
-
+> My fur-baby loves it! I have it in the kitchen so when I’m in there she has something to do other than lie under my feet. She’s still a kitten and weighs 5lbs. She plays with all levels (and already has ripped one of the mice off it’s string), and sleeps on it.
 
 ### Pros and Cons
 
