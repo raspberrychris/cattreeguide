@@ -1352,7 +1352,7 @@ It took me about 2 hours to put it together, but it is heavy and somewhat diffic
 
 ### Product Description 
 
-
+Give your cat a place to feel like the king of the world with this Hey-brother Multi-Level Cat Tree. With 1 roomy condo, 3 plush perches and 3 interactive jingly balls to play with, it's a dream home for any feline. The multi-level layout offers plenty of climbing fun while the sisal-covered slope is perfect for scratching, grinding and playing. This cat tree is perfect for homes with multiple cats or bigger breeds.
 
 ### Our Rating For This Product
 
@@ -1362,25 +1362,27 @@ It took me about 2 hours to put it together, but it is heavy and somewhat diffic
 
 ### Technical Details
 
+| Material       | Engineered Wood |
+|----------------|-----------------|
+| Color          | Beige           |
+| Brand          | Hey-brother     |
+| Style          | Active,Hammock  |
+| Item Weight    | 18.4 Kilograms  |
+| Target Species | Cat             |
 
 ### Customers Say about this product
 
-> 
-
-
+> The cat tree is very sturdy and the fabric is very soft as well. It was easy to assemble and it came with the tools needed. They even added in extras just in case you needed them. I was having a hard time finding one big enough for my cat but this fits her pretty good. I highly recommend this cat tree for your furry friends! Mine loves it!
 
 ### Pros and Cons
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
+| 👉 The cats really like the hideaway box. |👉 The cats really like the hideaway box, but it's not very big and doesn't provide much space for them to move around in or play with toys.|
+| 👉 It was fairly easy to assemble and the pieces all seam sturdy.|👉 It was fairly easy to assemble, but some of the pieces are a bit flimsy and seem like they could break easily if cats scratched at them too much.|
+| 👉 The old one is in the room yet, so there is no need to worry about the cats getting used to a new piece of furniture right away. |👉 The round half- pouch that hangs to the side is a good idea, but the weight of my cat14lbs. caused it to sink to the side that isn’t attached to the pole.|
 
 ---
-
  
   ## [Petmaker 3-Tier Cat Tower Collection - 2 Carpeted](/Petmaker-3-Tier-Cat-Tower-Collection---2-Carpeted)
 [![Petmaker-3-Tier-Cat-Tower-Collection---2-Carpeted](<https://images-na.ssl-images-amazon.com/images/I/71VwsJJrkAL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PETMAKER-Tree-Tier-Hanging-Scratching/dp/B06WP9Q6CR/?tag=cattreeguide-20>)[![Petmaker-3-Tier-Cat-Tower-Collection---2-Carpeted](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PETMAKER-Tree-Tier-Hanging-Scratching/dp/B06WP9Q6CR/?tag=cattreeguide-20>)
