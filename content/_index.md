@@ -1415,9 +1415,9 @@ It's an awesome product, but it's not for a full grown cat. My cat is an average
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The activity tower kept my kitten entertained and busy throughout the night.|👉 Not sturdy enough: The activity tower is not sturdy enough, and the towers can start falling down or tearing out of the foundation.|
+| 👉 I started putting cat treats in with the jingle balls, which turned the activity tower into their favorite toy.|👉 Costs money: The activity tower costs money to purchase, and it may need to be replaced frequently|
+| 👉 The towers are easy to assemble and take apart.|👉 Could be more durable.|
 
 ---
 
@@ -1895,5 +1895,3 @@ This cat tree is comfy, well built, and has a lot of space to accommodate many c
 | 👉 |👉 |
 
 ---
-
- 
