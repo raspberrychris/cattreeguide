@@ -1498,7 +1498,7 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 
 ---
 
-  ## [Hey-Brother Cat Tree Cat Tower  2 Cozy](/Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy)
+  ## [Hey-Brother Cat Tree Cat Tower 2 Cozy](/Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy)
 [![Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy](<https://images-na.ssl-images-amazon.com/images/I/71FdPXre-mL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)[![Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1688,22 +1688,27 @@ This cat condo is the perfect solution for small living spaces and apartment dwe
 
 ### Product Description 
 
-
+Give your cat the room they deserve with the Go Pet Club Cat Tree. This beautiful and durable cat tree is made from compressed wood, wrapped with a faux fur finish to keep your cat warm and comfortable. The multiple scratching posts are covered by natural sisal ropes which is perfect for your cat to scratch, climb, play and become active. Easy assembling with included tools and instructions.
 
 ### Our Rating For This Product
 
-
+The quality is pretty good, but the hammock is a little loose and the hooks come undone easily (keep an eye out for wet patches near the hammock). I saw another review where the cat knocked the whole hammock over and the hooks came off too.  Overall, it's a great value for your money so long as you're careful with it.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Engineered Wood |
+|----------------|-----------------|
+| Color          | Beige           |
+| Brand          | Go Pet Club     |
+| Style          | Active          |
+| Item Weight    | 38 Pounds       |
+| Target Species | Cat             |
 
 ### Customers Say about this product
 
-> 
-
-
+> We have had this for over a year and has held up well! Our cat loves every platform and sleeps in the round side bed often.
 
 ### Pros and Cons
 
@@ -1712,8 +1717,6 @@ This cat condo is the perfect solution for small living spaces and apartment dwe
 | 👉 |👉 |
 | 👉 |👉 |
 | 👉 |👉 |
-
-
 
 ---
 
