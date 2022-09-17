@@ -1864,22 +1864,27 @@ The dimensions on the website make it seem smaller than it really is which is a 
 
 ### Product Description 
 
-
+The perfect play center for your furry friends! No matter what your kitten wants to do - explore, play, or relax - the Rabbitgoo Cat Tree is the perfect place. With a deep hammock, cozy cradles, and perches on different levels, they can have the best seat in the house. The interactive hanging ball and loop will keep them entertained and they'll feel spoiled with all of the amenities they need.
 
 ### Our Rating For This Product
 
-
+This cat tree is comfy, well built, and has a lot of space to accommodate many cats. It was easy enough to put together and had a lot of levels for my cats to climb around on. The design is clean and the materials are high quality. My cats love it!
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Faux Fur, Polyester, Wood, Paper, Sisal |
+|----------------|-----------------------------------------|
+| Color          | Dark Night Grey                         |
+| Brand          | Rabbitgoo                               |
+| Style          | Modern Cat Tree Furniture               |
+| Item Weight    | 16 Kilograms                            |
+| Target Species | Cat                                     |
 
 ### Customers Say about this product
 
-> 
-
-
+> This tree is easy to assemble. (Once you fine the instructions! Lol) the photo makes it seem larger than it is. My boys are on the larger side of the cat size. (Not fat. Just sturdy 14lb and 15lb) and they play rough just like brothers do. Fingers crossed that this one lasts longer then 6months.
 
 ### Pros and Cons
 
@@ -1888,8 +1893,6 @@ The dimensions on the website make it seem smaller than it really is which is a 
 | 👉 |👉 |
 | 👉 |👉 |
 | 👉 |👉 |
-
-
 
 ---
 
