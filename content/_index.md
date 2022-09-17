@@ -1675,7 +1675,6 @@ This cat condo is the perfect solution for small living spaces and apartment dwe
 
 ---
 
- 
   ## [Go Pet Club 62-Inch Cat Tree Beige 38  ](/Go-Pet-Club-62-Inch-Cat-Tree-Beige-38  )
 [![Go-Pet-Club-62-Inch-Cat-Tree-Beige-38  ](<https://images-na.ssl-images-amazon.com/images/I/81rfELM+0CL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Go-Pet-Club-Condo-Furniture/dp/B007UI47PY/?tag=cattreeguide-20>)[![Go-Pet-Club-62-Inch-Cat-Tree-Beige-38  ](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Go-Pet-Club-Condo-Furniture/dp/B007UI47PY/?tag=cattreeguide-20>)
 
@@ -1713,7 +1712,6 @@ The quality is pretty good, but the hammock is a little loose and the hooks come
 
 ---
 
- 
   ## [Feandrea Cat Tree Small Cat Tower 33.1-Inch Cat](/Feandrea-Cat-Tree-Small-Cat-Tower-33.1-Inch-Cat)
 [![Feandrea-Cat-Tree-Small-Cat-Tower-33.1-Inch-Cat](<https://images-na.ssl-images-amazon.com/images/I/71gVSJ2NCTL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-33-1-Inch-Removable-Washable-UPCT142W01/dp/B08NV16GDH/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Small-Cat-Tower-33.1-Inch-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-33-1-Inch-Removable-Washable-UPCT142W01/dp/B08NV16GDH/?tag=cattreeguide-20>)
 
@@ -1756,22 +1754,27 @@ I love this cat tree, but I do wish I had purchased the next size up. I have two
 
 ### Product Description 
 
-
+This premium cat tower is perfect for your frisky cats. With a streamlined design and six levels, this multilevel cat tree provides plenty of space for your kitty. The top perch has a raised rim that allows your cat’s fluffy head to rest on it. The house is attached with a swing tunnel in the middle, providing the brightest spot in the whole house. Not enough tunnels? No worries! The condo is attached with an extra window that can attach another tunnel.
 
 ### Our Rating For This Product
 
-
+Very nice product.. only issue I had was the nuts and bolts fell out of the packaging and was all over in the box while shipping... they were all still there but a couple pieces(small funky screws) fell into the columns and I spent about an hour trying to shake them out.. also, the instruction diagram isn't printed large enough and I missed a crucial very first step that I had to come back to when I realized I had a set of spare parts...LOL.. All in all, it just took me about an hour to get it put all together and I really like the quality and esthetic of it.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material           | Polyester, Plush, Wood, Sisal, Fabric |
+|--------------------|---------------------------------------|
+| Color              | Brown                                 |
+| Brand              | PEQULTI                               |
+| Style              | Modern,Hammock                        |
+| Target Species     | Cat                                   |
+| Product Dimensions | 25.59"L x 15.75"W x 51.38"H           |
 
 ### Customers Say about this product
 
-> 
-
-
+> I have 4 cats and they all use this tree. My two smaller cats like the hammock best and my two large cats (12 -17lbs) love the top shelf. I love the way it looks and it is so much easier to clean than my previous carpeted tree.
 
 ### Pros and Cons
 
@@ -1781,32 +1784,33 @@ I love this cat tree, but I do wish I had purchased the next size up. I have two
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Huitree Cat Tree  Scratching Post And Hanging](/Huitree-Cat-Tree--Scratching-Post-And-Hanging)
 [![Huitree-Cat-Tree--Scratching-Post-And-Hanging](<https://images-na.ssl-images-amazon.com/images/I/81c05g3EK9L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/HUITREE-Tree-Scratching-Post-Hanging/dp/B08YD9WHK9/?tag=cattreeguide-20>)[![Huitree-Cat-Tree--Scratching-Post-And-Hanging](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/HUITREE-Tree-Scratching-Post-Hanging/dp/B08YD9WHK9/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+HUITREE Cat Tree with Scratching Post and Hanging Bed is the perfect place for your furry friend to hang out. The bedding on the top platform is made from high-quality faux fur, which is durable and soft for cats to sleep and relax on. The cat tree comes with a scratching post that is made from natural sisal posts that are long lasting because of their durable material.
 
 ### Our Rating For This Product
 
-
+We bought this for a playpen for young kittens that are not yet ready to be playing outside. The price and quality were as expected. It's a little too flimsy for the design, so we assembled two smaller wood structures rather than one larger one. It's perfect for our kittens, and our momma cat even uses it sometimes.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material           | Faux Fur                    |
+|--------------------|-----------------------------|
+| Color              | Gray                        |
+| Brand              | HUI                         |
+| Target Species     | Cat                         |
+| Product Dimensions | 16.93"L x 16.93"W x 45.27"H |
 
 ### Customers Say about this product
 
-> 
-
-
+> The kitten uses this almost every day and loves it. She did get her paw caught on one of dangling strings and we had to cut it off to free her. It was also a bit difficult to put together, maybe one or two steps tougher than IKEA furniture.
 
 ### Pros and Cons
 
@@ -1823,22 +1827,27 @@ I love this cat tree, but I do wish I had purchased the next size up. I have two
 
 ### Product Description 
 
-
+The Yaheetech Cat Tree is an attractive and practical cat tower that's perfect for your home. With its multiple levels, 3 perches, 2 condos, 1 basket, 8 scratching posts, 1 scratching board and 3 hanging balls, this cat tree is enough to keep your cats entertained. Made with natural materials which are good for sharpening their claws, the Yaheetech Cat Tree is a perfect purchase for any home with a feline friend.
 
 ### Our Rating For This Product
 
-
+The dimensions on the website make it seem smaller than it really is which is a plus. It's large enough that we haven't had any tippling issues yet and small enough that it doesn't feel overwhelming. It's also sturdy enough that you can play with a cat on it without it breaking. It was easy to assemble and all the holes were cut properly for those who are assembling themselves. It's definitely worth the money.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Particleboard and Plush |
+|----------------|-------------------------|
+| Color          | Beige                   |
+| Brand          | Yaheetech               |
+| Style          | Protection,Multilevel   |
+| Item Weight    | 41.89 Pounds            |
+| Target Species | Cat                     |
 
 ### Customers Say about this product
 
-> 
-
-
+> Wow, this went together fairly easily and was well made and totally sturdy. I was surprised at the good quality of the unit.
 
 ### Pros and Cons
 
@@ -1848,11 +1857,8 @@ I love this cat tree, but I do wish I had purchased the next size up. I have two
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Rabbitgoo Cat Tree Cat Tower 61   For Indoor](/Rabbitgoo-Cat-Tree-Cat-Tower-61  -For-Indoor)
 [![Rabbitgoo-Cat-Tree-Cat-Tower-61  -For-Indoor](<https://images-na.ssl-images-amazon.com/images/I/71hwh-wa7EL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/rabbitgoo-Multi-Level-Scratching-Furniture-Climbing/dp/B08D94LX6L/?tag=cattreeguide-20>)[![Rabbitgoo-Cat-Tree-Cat-Tower-61  -For-Indoor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/rabbitgoo-Multi-Level-Scratching-Furniture-Climbing/dp/B08D94LX6L/?tag=cattreeguide-20>)
 
