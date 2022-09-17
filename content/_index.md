@@ -1543,22 +1543,24 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 
 ### Product Description 
 
-
+The BYPASS Cat Tree is a genius all-in-one design that integrates a cat scratching post, a cat condo, a cat hammock, and hanging balls. Cats naturally like to be wrapped and the cozy hammock shape fits their body's curve when sleeping, hugging your cat like a lover, full of warmth and security. This soft carpeted tree is composed of P2 particleboard covered in soft carpet with natural sisal surface that is safe and friendly for cats to touch. The short
 
 ### Our Rating For This Product
 
-
+The BYPASS Cat Tower is a great, and affordable, way for any cat owner to provide their pet with an active and stimulating environment. The materials are lightweight and easy to assemble, and the large number of scratching posts and platforms were enough to keep our small kitten entertained throughout the day.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Paper  |
+|----------------|--------|
+| Brand          | BYPASS |
+| Target Species | Cat    |
 
 ### Customers Say about this product
 
-> 
-
-
+> This cat tower is cute, but is definitely for smaller cats (8 lbs or less) or kittens. My smaller cats love it. My cat keeps knocking it over attempting to get on it.
 
 ### Pros and Cons
 
@@ -1568,32 +1570,34 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Yaheetech Cat Tree For Indoor Cats 36In Cat](/Yaheetech-Cat-Tree-For-Indoor-Cats-36In-Cat)
 [![Yaheetech-Cat-Tree-For-Indoor-Cats-36In-Cat](<https://images-na.ssl-images-amazon.com/images/I/81NS1NKEY-L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/YAHEETECH-36in-Tree-Tower-Kittens/dp/B08DFV1DSB/?tag=cattreeguide-20>)[![Yaheetech-Cat-Tree-For-Indoor-Cats-36In-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/YAHEETECH-36in-Tree-Tower-Kittens/dp/B08DFV1DSB/?tag=cattreeguide-20>)
 
 ### Product Description 
 
-
+Yaheetech Cat Tree for Indoor Cats, 36in Cat Tower Cat Condo with Extra Large Perch, Scratching Post. This three-tiered cat tree is made from particleboard, plush, sisal ropes, metal, paper tubes and plastic. The selected materials are sturdy and cozy enough for sleeping and playing. Your cute cats will fall in love with it. This plush cat tree is generally suitable for 2-3 small or medium-sized cats. Better more, we recommend
 
 ### Our Rating For This Product
 
-
+I ordered this cat tree in black. It is not black. I'm not sure why the box was marked black but the color is definitely medium grey. The piece is sturdy and of good quality, but I am disappointed because I wanted a black cat tree. I'm keeping it because it's just too much of a hassle to go through the process of returning it, but I would recommend if you're looking for a medium-grey cat tree.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material           | Particle board & plush & sisal rope |
+|--------------------|-------------------------------------|
+| Color              | Beige                               |
+| Brand              | Yaheetech                           |
+| Item Weight        | 24.03 Pounds                        |
+| Target Species     | Cat                                 |
+| Product Dimensions | 19.29"L x 17.91"W x 35.83"H         |
 
 ### Customers Say about this product
 
-> 
-
-
+> The assembly was a little difficult. It seems that the holes weren't lining up. But the important thing is that our new kitten and our old cat love it!
 
 ### Pros and Cons
 
@@ -1603,10 +1607,7 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Catforest Floor-To-Ceiling Cat Tree Cat Climbing Tower ](/Catforest-Floor-To-Ceiling-Cat-Tree-Cat-Climbing-Tower-)
 [![Catforest-Floor-To-Ceiling-Cat-Tree-Cat-Climbing-Tower-](<https://images-na.ssl-images-amazon.com/images/I/518ikIFDuOL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Floor-Ceiling-Climbing-Natural-Scratching/dp/B08XY2J1MW/?tag=cattreeguide-20>)[![Catforest-Floor-To-Ceiling-Cat-Tree-Cat-Climbing-Tower-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Floor-Ceiling-Climbing-Natural-Scratching/dp/B08XY2J1MW/?tag=cattreeguide-20>)
