@@ -1719,11 +1719,11 @@ The quality is pretty good, but the hammock is a little loose and the hooks come
 
 ### Product Description 
 
-
+Get your cat excited for a new adventure with this small, but mighty cat tree. Living in a small space doesn’t mean you have to compromise your love for your cat. This cat tree is only 16.1” x 18.1” but offers endless joy from climbing, scratching and relaxing. The top perch is equipped with a removable cover for easy cleaning, which can be easily removed and washed when it comes time to clean up food stains or accidents. Worried that
 
 ### Our Rating For This Product
 
-
+I love this cat tree, but I do wish I had purchased the next size up. I have two cats, both of which are the same weight, and so it is hard to find a good balance between stability and mobility. It is also a little small for my two cats to cozy in comfortably. It’s just not quite big enough for them. The circular bed is too small for them and would only fit a kitten.
 
 ⭐⭐⭐⭐⭐
 
@@ -1816,10 +1816,7 @@ The quality is pretty good, but the hammock is a little loose and the hooks come
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
   ## [Yaheetech Cat Tree Cat Tower Multilevel Cat Condo](/Yaheetech-Cat-Tree-Cat-Tower-Multilevel-Cat-Condo)
 [![Yaheetech-Cat-Tree-Cat-Tower-Multilevel-Cat-Condo](<https://images-na.ssl-images-amazon.com/images/I/71hk1vtDvAL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Tower-Multilevel-Scratching-Indoor/dp/B0B6VHQLKH/?tag=cattreeguide-20>)[![Yaheetech-Cat-Tree-Cat-Tower-Multilevel-Cat-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Tower-Multilevel-Scratching-Indoor/dp/B0B6VHQLKH/?tag=cattreeguide-20>)
