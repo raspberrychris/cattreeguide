@@ -1614,22 +1614,25 @@ I ordered this cat tree in black. It is not black. I'm not sure why the box was 
 
 ### Product Description 
 
-
+Bring the great outdoors into your home with this cat tree climbing tower. The natural sisal rope scratching post and plush perch on top make for a perfect place for your kitty to explore, relax, and scratch. Built to last, this unit is made of durable carpeting, a metal pole frame and durable wood posts.
 
 ### Our Rating For This Product
 
-
+This cat tree is a great size and has the perfect look. It blends well in my living room, and my cats love it. The sisal rope scratching post is also a good size. I assembled this myself in less than an hour, even though I am not particularly handy. The instructions on how to do so are very simple, and you should be able to assemble it in less than 5 minutes. The only modification I made was that I positioned one of the paddles higher at the top, instead of closer to the floor. This allows my cats to jump up to the ledge above the recessed part.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Paper       |
+|----------------|-------------|
+| Color          | Light Brown |
+| Brand          | Catforest   |
+| Target Species | Cat         |
 
 ### Customers Say about this product
 
-> 
-
-
+> Our Cat loves this so much and it doesn’t look bad or take up a lot of space. Once we got this she drastically decreased the amount of furniture scratching she did.
 
 ### Pros and Cons
 
@@ -1638,8 +1641,6 @@ I ordered this cat tree in black. It is not black. I'm not sure why the box was 
 | 👉 |👉 |
 | 👉 |👉 |
 | 👉 |👉 |
-
-
 
 ---
 
@@ -1649,22 +1650,27 @@ I ordered this cat tree in black. It is not black. I'm not sure why the box was 
 
 ### Product Description 
 
-
+This cat condo is the perfect solution for small living spaces and apartment dwellers. With a modern design and durable materials, it provides the perfect space for your cat to play, scratch, sleep or just enjoy the view. It's easy to assemble thanks to detailed instruction manuals, and all the tools you need are included.
 
 ### Our Rating For This Product
 
-
+ It was really easy to assemble, even if the directions had multiple technical errors which made me think the directions were written based on autocad plans instead of actual assembly. For example, the screws didn't trim the full 360 degrees and some were inserted upside down so it wasn't possible to turn them in the direction the instructions suggested. These simple mistakes aside, installation was easy enough to figure out and I appreciated that.
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Material       | Wood                          |
+|----------------|-------------------------------|
+| Color          | Beige                         |
+| Brand          | MADE 4 PETS                   |
+| Style          | Modern,Elegant,Hammock,Simple |
+| Item Weight    | 15 Kilograms                  |
+| Target Species | Cat                           |
 
 ### Customers Say about this product
 
-> 
-
-
+> This cat tree is high quality and sturdy. I like how it has a smaller base than other cat trees so it takes up less real estate in the living room. We did not use the pads that can be attached. I would recommend this cat tree.
 
 ### Pros and Cons
 
@@ -1673,8 +1679,6 @@ I ordered this cat tree in black. It is not black. I'm not sure why the box was 
 | 👉 |👉 |
 | 👉 |👉 |
 | 👉 |👉 |
-
-
 
 ---
 
