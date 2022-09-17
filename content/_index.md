@@ -1356,7 +1356,7 @@ Give your cat a place to feel like the king of the world with this Hey-brother M
 
 ### Our Rating For This Product
 
-
+This multi-level cat tree is a great investment for those looking to provide their furry friend with the ultimate place to relax. It's sturdy, stable, and has a ton of great features. The sisal-covered scratching posts are perfect for scratching and grinding claws without clawing up furniture. The condos offer luxurious napping space and are perfect for hiding from other pets or children. I highly recommend this product.
 
 ⭐⭐⭐⭐⭐
 
@@ -1419,11 +1419,8 @@ It's an awesome product, but it's not for a full grown cat. My cat is an average
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Hey-Brother Multi-Level Cat Tree Condo For Large Cats](/Hey-Brother-Multi-Level-Cat-Tree-Condo-For-Large-Cats)
 [![Hey-Brother-Multi-Level-Cat-Tree-Condo-For-Large-Cats](<https://images-na.ssl-images-amazon.com/images/I/61SK0JB6gLL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Multi-Level-Scratching-Padded-MPJ0025M/dp/B08FR7K8T9/?tag=cattreeguide-20>)[![Hey-Brother-Multi-Level-Cat-Tree-Condo-For-Large-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Multi-Level-Scratching-Padded-MPJ0025M/dp/B08FR7K8T9/?tag=cattreeguide-20>)
 
@@ -1503,11 +1500,11 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 
 ### Product Description 
 
-
+This cat tree is perfect for small cats and fits perfectly into even the smallest homes. It’s the perfect compact playground for your light-footed house tiger. Sharpening their claws, lying around, playing, and hiding; every cat has their own favorite activity on our scratching tree.
 
 ### Our Rating For This Product
 
-
+It’s the perfect compact playground for your light-footed house tiger. Sharpening their claws, lying around, playing, and hiding; every cat has their own favorite activity on our scratching tree. Cozy and Privacy: The dual condos is covered with ultra soft plush, and the enclosed design creates a sense of security providing them a quiet place to curl up for napping. 
 
 ⭐⭐⭐⭐⭐
 
@@ -1533,11 +1530,8 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
   ## [Bypass Cat Tree 30   Cactus Cat Tower ](/Bypass-Cat-Tree-30  -Cactus-Cat-Tower-)
 [![Bypass-Cat-Tree-30  -Cactus-Cat-Tower-](<https://images-na.ssl-images-amazon.com/images/I/6131ivr2qNL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/BYPASS-Scratching-Hammock-Dangling-Furniture/dp/B0B5YZ4ZM8/?tag=cattreeguide-20>)[![Bypass-Cat-Tree-30  -Cactus-Cat-Tower-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/BYPASS-Scratching-Hammock-Dangling-Furniture/dp/B0B5YZ4ZM8/?tag=cattreeguide-20>)
 
@@ -1644,7 +1638,6 @@ This cat tree is a great size and has the perfect look. It blends well in my liv
 
 ---
 
- 
   ## [Made4Pets Cat Tree Cat Tower For Indoor Cats](/Made4Pets-Cat-Tree-Cat-Tower-For-Indoor-Cats)
 [![Made4Pets-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/61rMrIfuauL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Made4Pets-Inches-Scratching-Hammock-Removable/dp/B081RVTTJ1/?tag=cattreeguide-20>)[![Made4Pets-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Made4Pets-Inches-Scratching-Hammock-Removable/dp/B081RVTTJ1/?tag=cattreeguide-20>)
 
