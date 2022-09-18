@@ -72,4 +72,4 @@ mainSections = ["samples"]
   # yandex = ""
 
 [params]
-site_logo = "static/cat-tree-guide-logo.png"
+site_logo = "/cat-tree-guide-logo.png"
