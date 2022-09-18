@@ -1780,9 +1780,9 @@ Very nice product.. only issue I had was the nuts and bolts fell out of the pack
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Attractive design |👉 The plastic container for the screws, etc. did come apart so they all fell to the bottom of the box when pulling everything out.|
+| 👉 Easy to assemble|👉 It was still really easy to see what's what because the instructions are fairly thorough.|
+| 👉 Cats love it |👉 My only concern are the 4 straps that hold the Tunnel Swing.|
 
 ---
  
@@ -1816,9 +1816,9 @@ We bought this for a playpen for young kittens that are not yet ready to be play
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Inexpensive|👉 Not Durable: It is made of cheap materials and is not durable.|
+| 👉 Easily assembled|👉 Too Flimsy: If you try to make one structure as designed, it will be too flimsy and might collapse under the weight of the kittens or mom.|
+| 👉 Flexible|👉 Limited Usefulness: It can only be used for very young kittens to put into a playpen. Once they outgrow it, it will no longer be useful for them.|
 
 ---
  
@@ -1853,9 +1853,9 @@ The dimensions on the website make it seem smaller than it really is which is a 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The tree is large enough that it doesn't tip over easily, but small enough to not be in the way.|👉 Bad instructions: The instructions that come with the tree are not clear and easy to follow. This makes it difficult to assemble the tree correctly.|
+| 👉 There are a lot of places for the cats to scratch and climb, and they use every inch of it.|👉 Poor quality materials: The materials used to make the tree are of poor quality and do not seem very durable.|
+| 👉 The holes in the fabric were already cut/pierced, which made assembly even easier|👉 Cats may not use it: Some cats may not be interested in using the tree, no matter how well it is made or how big it is.|
 
 ---
 
@@ -1890,8 +1890,8 @@ This cat tree is comfy, well built, and has a lot of space to accommodate many c
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Cats love it: Both of the cats in the house have taken to this new piece of furniture and claim different parts as their own.|👉 It takes up a lot of space: This cat tree is huge! It's taller than me and quite wide, so it takes up a lot of space in my home.|
+| 👉 It's quite sturdy: Despite being tall and wide, this piece of furniture is surprisingly sturdy and well-built.|👉 My cats never use the bottom area: The bottom of the cat tree has a reclining area, but my cats have never used it. I think it's because they like the higher perches better.|
+| 👉 It offers great views: The top perch provides a perfect spot for one of the cats to nap while also getting a good view out the window.|👉 It's not very stylish: This cat tree is functional, but it's not very stylish. If you're looking for something to match your home décor, this might not be the right choice for you|
 
 ---
