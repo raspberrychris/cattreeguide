@@ -50,7 +50,7 @@ The cat tree is sturdy and efficient, providing a great place for my cat to slee
 
 ---
 
-  ## [Yaheetech 54In Cat Tree Tower Condo Furniture Scratch](/yaheetech-54In-cat-tree-tower-condo-furniture-scratch)
+  ## [Yaheetech 54In Cat Tree Tower Condo Furniture Scratch](/reviews/yaheetech-54in-cat-tree-tower-condo-furniture-scratch)
 [![Yaheetech-54In-Cat-Tree-Tower-Condo-Furniture-Scratch](<https://images-na.ssl-images-amazon.com/images/I/81zxz9kNjKL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Tower-Furniture-Scratch-Kittens/dp/B07D49F77J/?tag=cattreeguide-20>)[![Yaheetech-54In-Cat-Tree-Tower-Condo-Furniture-Scratch](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Tower-Furniture-Scratch-Kittens/dp/B07D49F77J/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -87,7 +87,7 @@ It took about an hour to assemble, the tower is great for kittens, and our cat l
 
 ---
 
-  ## [53 Inches Multi-Level Cat Tree Stand House Furniture](/53-Inches-Multi-Level-Cat-Tree-Stand-House-Furniture)
+  ## [53 Inches Multi-Level Cat Tree Stand House Furniture](/reviews/53-inches-multi-level-cat-tree-stand-house-furniture)
 [![53-Inches-Multi-Level-Cat-Tree-Stand-House-Furniture](<https://images-na.ssl-images-amazon.com/images/I/81ExPiEDqqL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Nova-Microdermabrasion-Multi-Level-Furniture-Scratching/dp/B07RVJMV9B/?tag=cattreeguide-20>)[![53-Inches-Multi-Level-Cat-Tree-Stand-House-Furniture](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Nova-Microdermabrasion-Multi-Level-Furniture-Scratching/dp/B07RVJMV9B/?tag=cattreeguide-20>)
 
 ### Product Description 
