@@ -10,7 +10,7 @@
 colorScheme = "avocado"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
-site_logo = "static/cat-tree-guide-logo.png"
+site_logo = "assets/cat-tree-guide-logo.png"
 enableSearch = true
 enableCodeCopy = true
 
