@@ -1669,9 +1669,9 @@ This cat condo is the perfect solution for small living spaces and apartment dwe
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Sleek and modern design.|👉 The risk of injury to your cat if they fall from a high shelf.|
+| 👉 Sturdy and durable.|👉 If your cat climbs on the shelves, they could potentially damage or break items that you have stored there. |
+| 👉 Cats can climb it and have a good view of the surroundings from the top shelf.|👉 It is possible for cats to escape through the opening at the top of the cabinet if they are able to jump high enough|
 
 ---
 
@@ -1706,9 +1706,9 @@ The quality is pretty good, but the hammock is a little loose and the hooks come
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Easy to assemble |👉 Some online reviews note that the stability is not great, and that it was a tripping hazard in their location.|
+| 👉 Stable and sturdy|👉 Hammock not sturdy: The hammock is also noted as being not sturdy, and falling off the hooks constantly.|
+| 👉 Great for cats who love to climb and explore|👉 Too much space at bottom: There is too much space at the bottom of the tower, which makes it difficult to put extra toys or objects there without them falling off.|
 
 ---
 
