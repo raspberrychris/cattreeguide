@@ -1743,9 +1743,9 @@ I love this cat tree, but I do wish I had purchased the next size up. I have two
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Affordable|👉 It is a bit tall, so it might not be suitable for shorter people or people with limited space.|
+| 👉 Sturdy|👉 Some customers have reported issues with the materials|
+| 👉 Big enough to fit a 9 lb cat|👉 Some customers have reported that it may not be suitable for shorter people or those with limited space.|
 
 ---
 
