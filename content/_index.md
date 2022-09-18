@@ -1560,9 +1560,9 @@ The BYPASS Cat Tower is a great, and affordable, way for any cat owner to provid
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Decent instructions: The instructions are simple but decent, and easy to follow|👉 The cat tower is light weight and might not be very sturdy.|
+| 👉 Lightweight and easy to assemble: The cat tower is lightweight and easy to assemble, making it ideal for small spaces.|👉 The instructions for assembly are not very clear.|
+| 👉 Cute design: The cat tower has a cute design that will fit in well with your home decor.|👉 There are some parts of the cat tower that are covered in carpet, which might not be ideal for some cats.|
 
 ---
 
@@ -1597,9 +1597,9 @@ I ordered this cat tree in black. It is not black. I'm not sure why the box was 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Seemingly sturdy and made of soft material|👉 The long side of the top platform does not run along the back of the tree as shown in the photo, which can be misleading.|
+| 👉 Adorable design that my new kittens seem to be adapting to just fine|👉 The platform is not very large, so it may not be suitable for two kittens or for adult cats.|
+| 👉 Large platform size|👉 The material is soft, which some people may prefer, but it might not be as sturdy as other cat trees made from different materials.|
 
 ---
  
