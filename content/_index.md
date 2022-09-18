@@ -1452,9 +1452,9 @@ It’s a great choice if you need to separate two cats that hate each other. The
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Looks good |👉 Difficult to Assemble: The main con of this product is that it is difficult to assemble.|
+| 👉 Exactly like the photo|👉 Poor Quality Instructions: The instructions that are available are poor quality and do not help much in assembling the product correctly.|
+| 👉 The color is perfect|👉 Not Suitable for All Cats: This product may not be suitable for all cats as some may not be interested in the features it offers or they may not be able to use them properly due to their size or weight.|
 
 ---
 
@@ -1489,9 +1489,9 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Cats can lay on top bed or on the bottom and middle flat parts|👉 The hanging ball toy did not hold up.|
+| 👉 The inside of the ball is just more of the soft fabric|👉 The rope came unbraided within the same time frame and is fraying rapidly. |
+| 👉 The rope came unbraided within the same time frame and is fraying rapidly|👉 The circular cubby is not very large so only a small cat can fit inside |
 
 ---
 
@@ -1526,9 +1526,9 @@ It’s the perfect compact playground for your light-footed house tiger. Sharpen
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The cat can jump off the top and land safely. |👉 The cushion that is to fit in the top doesn’t fit well |
+| 👉 The cushion is slightly too long, but it doesn’t seem to bother the cats.|👉 The puffiness of the cushion may bother some cats, making them uncomfortable.|
+| 👉 Nice design and look|👉 Because the cushion is slightly too long, it may cause the cat tree to tip over more easily if a heavier cat jumps on top of it.|
 
 ---
 
