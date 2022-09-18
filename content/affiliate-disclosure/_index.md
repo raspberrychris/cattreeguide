@@ -1,6 +1,6 @@
 ---
 title: "Affiliate Disclosure"
-description: "Learn how to use Congo and its features."
+description: "Affiliate Disclosure"
 
 cascade:
   showDate: false

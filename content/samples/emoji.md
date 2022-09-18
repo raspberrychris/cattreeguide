@@ -4,6 +4,8 @@ date: 2019-03-05
 description: "Guide to Emoji usage in Congo"
 summary: "📖🏞️🧗🏽🐉🧙🏽‍♂️🧚🏽👸"
 tags: ["emoji", "sample"]
+draft: true
+
 ---
 
 Emoji is supported throughout Congo by default. Emoji can be used in titles, menu items and article content.
