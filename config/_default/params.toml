@@ -5,15 +5,11 @@
 # Refer to the theme docs for more details about each of these parameters.
 # https://jpanther.github.io/congo/docs/configuration/#theme-parameters
 
-[params]
-site_logo = "static/cat-tree-guide-logo.png"
+
 
 colorScheme = "avocado"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
-
-
-
 
 enableSearch = true
 enableCodeCopy = true
@@ -74,3 +70,6 @@ mainSections = ["samples"]
   # bing = ""
   # pinterest = ""
   # yandex = ""
+
+[params]
+site_logo = "static/cat-tree-guide-logo.png"
