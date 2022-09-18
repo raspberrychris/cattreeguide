@@ -10,7 +10,7 @@
 colorScheme = "avocado"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
-
+site_logo = "static/cat-tree-guide-logo.png"
 enableSearch = true
 enableCodeCopy = true
 
@@ -71,5 +71,4 @@ mainSections = ["samples"]
   # pinterest = ""
   # yandex = ""
 
-[params]
-  site_logo = "static/cat-tree-guide-logo.png"
+  
