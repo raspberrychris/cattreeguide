@@ -25,11 +25,6 @@ _We use affiliate links on this site and we may earn a small commission if you c
 
 ***
 
-Welcome to thsi article and page baout test plus.
-
-Lets see if the schema works!
-
-
  ## [Amazon Basics Cat Tower Hammock And Scratching](/reviews/Amazon-Basics-Cat-Tower-Hammock-And-Scratching)
 [![Amazon-Basics-Cat-Tower-Hammock-And-Scratching](<https://images-na.ssl-images-amazon.com/images/I/6174OeN-v7L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Amazon-Basics-Condo-Hammock-Scratching/dp/B07G3JK26B/?tag=cattreeguide-20>)[![Amazon-Basics-Cat-Tower-Hammock-And-Scratching](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Amazon-Basics-Condo-Hammock-Scratching/dp/B07G3JK26B/?tag=cattreeguide-20>)
 
