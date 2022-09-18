@@ -2,5 +2,6 @@ baseURL = 'https://cattreeguide.com'
 languageCode = 'en-us'
 title = 'Cat Tree Guide'
 theme = "congo"
+logo = "assets/cat-tree-guide-logo.png"
 
 
