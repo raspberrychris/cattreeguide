@@ -1,29 +1,32 @@
----
++++
 authorbox = true
-categories = ["Amazon Basics"]
+categories = ["test Plus"]
 comments = true
-date = 2022-09-18T23:00:00Z
+date = 2022-06-16T23:00:00Z
 description = ""
 lead = "A fantastic entry level test product for the price"
-mathjax = false
+mathjax = true
 pager = true
-sidebar = "true"
+sidebar = ""
 tags = ["Review"]
 thumbnail = "/uploads/4dc0acce-7577-421b-a497-51978f1155a9.jpeg"
-title = "Amazon Basics Cat Tower Hammock and Scratching Pad"
+title = "testing"
 toc = true
 widgets = []
-pro1 = "It was easy to assemble"
-pro2 = "Not too heavy"
-pro3 = "Pretty stable"
-con1 = "It could be bigger to fit bigger cats"
-con2 = "The ball that comes with it could be bouncier"
-con3 = "Some sort of toy attachment would be nice"
----
+pro1 = "Its really great at doing stuff"
+pro2 = "Good Quality"
+con1 = "Too expensive"
+con2 = "I dont like the cats"
 
++++
 _We use affiliate links on this site and we may earn a small commission if you click the links and make a purchase. There will be no additional fees added should you wish to make a purchase._
 
 ***
+
+Welcome to thsi article and page baout test plus.
+
+Lets see if the schema works!
+
 
  ## [Amazon Basics Cat Tower Hammock And Scratching](/reviews/Amazon-Basics-Cat-Tower-Hammock-And-Scratching)
 [![Amazon-Basics-Cat-Tower-Hammock-And-Scratching](<https://images-na.ssl-images-amazon.com/images/I/6174OeN-v7L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Amazon-Basics-Condo-Hammock-Scratching/dp/B07G3JK26B/?tag=cattreeguide-20>)[![Amazon-Basics-Cat-Tower-Hammock-And-Scratching](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Amazon-Basics-Condo-Hammock-Scratching/dp/B07G3JK26B/?tag=cattreeguide-20>)
