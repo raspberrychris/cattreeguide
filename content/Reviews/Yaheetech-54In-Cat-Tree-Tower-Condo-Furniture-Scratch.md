@@ -1,6 +1,6 @@
 +++
 authorbox = true
-categories = ["test Plus"]
+categories = ["Yaheetech"]
 comments = true
 date = 2022-06-16T23:00:00Z
 description = ""
@@ -13,12 +13,12 @@ thumbnail = "/uploads/4dc0acce-7577-421b-a497-51978f1155a9.jpeg"
 title = "Yaheetech 54 Inch Cat Tree Tower Condo Furniture Scratch"
 toc = true
 widgets = []
-pro1 = "It was easy to assemble"
-pro2 = "Good Quality"
-pro3 = "Pretty stable"
-con1 = "It could be bigger to fit bigger cats"
-con2 = "The ball that comes with it could be bouncier"
-con3 = "Some sort of toy attachment would be nice"
+pro1 = "Cat-Approved: Your kitty will love this scratcher, as it's covered in catnip or something similar"
+pro2 = "Easy Assembly: All parts are included and labeled, so you shouldn't have any trouble putting it together"
+pro3 = "Good Construction: This scratcher is well-made and should last for a long time"
+con1 = "Chew proofing: It would be nice if this was made out of a material that cats couldn't easily chew through or scratch"
+con2 = "Size: It's a little small and my cats have already outgrown it. I wish it was just a bit larger so they could enjoy it for longer"
+con3 = "Sturdiness: Can tip over if Cat is playing with it vigorously"
 
 +++
 _We use affiliate links on this site and we may earn a small commission if you click the links and make a purchase. There will be no additional fees added should you wish to make a purchase._
