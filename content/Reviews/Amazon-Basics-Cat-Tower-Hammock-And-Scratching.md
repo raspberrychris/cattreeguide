@@ -1,4 +1,4 @@
-+++
+---
 authorbox = true
 categories = ["Amazon Basics"]
 comments = true
@@ -19,8 +19,7 @@ pro3 = "Pretty stable"
 con1 = "It could be bigger to fit bigger cats"
 con2 = "The ball that comes with it could be bouncier"
 con3 = "Some sort of toy attachment would be nice"
-
-+++
+---
 
 _We use affiliate links on this site and we may earn a small commission if you click the links and make a purchase. There will be no additional fees added should you wish to make a purchase._
 
