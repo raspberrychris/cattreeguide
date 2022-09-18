@@ -11,3 +11,6 @@ summaryLength = 0
 
 [outputs]
   home = ["HTML", "RSS", "JSON"]
+
+[params]
+  site_logo = "img/cat-tree-guide-logo.png"

@@ -3,5 +3,4 @@ languageCode = 'en-us'
 title = 'Cat Tree Guide'
 theme = "congo"
 
-[params]
-  site_logo = "img/cat-tree-guide-logo.png"
+
