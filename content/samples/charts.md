@@ -4,7 +4,7 @@ date: 2019-03-06
 description: "Guide to Chart.js usage in Congo"
 summary: "Congo includes Chart.js for powerful charts and data visualisations."
 tags: ["chart", "sample", "graph", "shortcodes"]
-draft: true
+draft: false
 
 ---
 
