@@ -125,7 +125,7 @@ In general, It is sturdy and lasts a long time, especially with a heavy cat. The
 
 ---
 
-  ## [Aiwikide 002G Cat Tree Has Scratching Toy ](/aiwikide-002g-cat-tree-has-scratching-toy)
+  ## [Aiwikide 002G Cat Tree Has Scratching Toy](/aiwikide-002g-cat-tree-has-scratching-toy)
 [![Aiwikide-002G-Cat-Tree-Has-Scratching-Toy](<https://images-na.ssl-images-amazon.com/images/I/71a4WlOrgYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/WIKI-Scratching-Activity-Furniture-Jute-Covered/dp/B07CQHK2CS/?tag=cattreeguide-20>)[![aiwikide-002g-cat-tree-has-scratching-toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/WIKI-Scratching-Activity-Furniture-Jute-Covered/dp/B07CQHK2CS/?tag=cattreeguide-20>)
 
 ### Product Description 
