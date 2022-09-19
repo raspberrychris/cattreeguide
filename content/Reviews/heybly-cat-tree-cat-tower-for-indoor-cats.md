@@ -1,6 +1,6 @@
 +++
 authorbox = true
-categories = ["Heybly Cat Tree Cat Tower for Indoor Cats"]
+categories = ["Heybly"]
 comments = true
 date = 2022-06-16T23:00:00Z
 description = "Join us as we review the heybly cat tree tower for indoor cats  and see how it stacks up against the competition! cattreeguide.com!"
