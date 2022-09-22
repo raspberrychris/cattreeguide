@@ -11,8 +11,10 @@ colorScheme = "avocado"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
 enableSearch = true
-enableCodeCopy = true
 logo = "img/cat-tree-guide.jpeg"
+
+
+enableCodeCopy = true
 mainSections = ["samples"]
 # robots = ""
 
