@@ -12,7 +12,7 @@ defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
 enableSearch = true
 enableCodeCopy = true
-logo = "img/cat-tree-guide.png"
+logo = "img/cat-tree-guide.jpeg"
 mainSections = ["samples"]
 # robots = ""
 
