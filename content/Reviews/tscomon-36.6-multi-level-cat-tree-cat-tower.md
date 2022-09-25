@@ -1,5 +1,5 @@
 ---
-title: "Content Placeholder"
+title: "Tscomon 36.6 Multi-Level Cat Tree Cat Tower"
 draft: false
 ---
 
