@@ -1,5 +1,5 @@
 ---
-title: "Content Placeholder"
+title: "Bestpet 54In Cat Tree Tower For Indoor Cats Multi-Level"
 _build:
   render: never
   list: never
