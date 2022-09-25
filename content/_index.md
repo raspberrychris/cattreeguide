@@ -128,7 +128,7 @@ In general, It is sturdy and lasts a long time, especially with a heavy cat. The
 
 ---
 
-  ## [Aiwikide 002G Cat Tree Has Scratching Toy](/aiwikide-002g-cat-tree-has-scratching-toy)
+  ## [Aiwikide 002G Cat Tree Has Scratching Toy](/reviews//aiwikide-002g-cat-tree-has-scratching-toy)
 [![Aiwikide-002G-Cat-Tree-Has-Scratching-Toy](<https://images-na.ssl-images-amazon.com/images/I/71a4WlOrgYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/WIKI-Scratching-Activity-Furniture-Jute-Covered/dp/B07CQHK2CS/?tag=cattreeguide-20>)[![aiwikide-002g-cat-tree-has-scratching-toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/WIKI-Scratching-Activity-Furniture-Jute-Covered/dp/B07CQHK2CS/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -164,7 +164,7 @@ The instructions could be a little more clear, but it was pretty easy to put tog
 
 ---
 
-  ## [Heybly Cat Tree Cat Tower For Indoor Cats](/Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats)
+  ## [Heybly Cat Tree Cat Tower For Indoor Cats](/reviews/heybly-cat-tree-cat-tower-for-indoor-cats)
 [![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/71DIRTmqI1L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT010M/dp/B09J848LW3/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT010M/dp/B09J848LW3/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -200,7 +200,7 @@ I'm very happy with this purchase. The instructions for assembly are well writte
 
 ---
  
-  ## [Xin Three Layer Cat Tree Cat Condo](/Xin-Three-Layer-Cat-Tree--Cat-Condo)
+  ## [Xin Three Layer Cat Tree Cat Condo](/reviews//xin-three-layer-cat-tree-cat-condo)
 [![Xin-Three-Layer-Cat-Tree-Cat-Condo](<https://images-na.ssl-images-amazon.com/images/I/81LDzdFZiSL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/WANG-XIN-Three-Hammocks-502/dp/B09576SLY9/?tag=cattreeguide-20>)[![Xin-Three-Layer-Cat-Tree-Cat-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/WANG-XIN-Three-Hammocks-502/dp/B09576SLY9/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -237,7 +237,7 @@ I'm giving this tree five stars because each of my cats love it. It's a great si
 
 ---
  
-  ## [Bestpet 54In Cat Tree Tower For Indoor Cats Multi-Level](/Bestpet-54In-Cat-Tree-Tower-For-Indoor-CatsMulti-Level)
+  ## [Bestpet 54In Cat Tree Tower For Indoor Cats Multi-Level](/reviews/bestpet-54in-cat-tree-tower-for-indoor-catsmulti-level)
 [![Bestpet-54In-Cat-Tree-Tower-For-Indoor-Cats-Multi-Level](<https://images-na.ssl-images-amazon.com/images/I/71ziryCE97L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/BestPet-54in-Multi-Level-Furniture-Scratching/dp/B0BBGCLP7S/?tag=cattreeguide-20>)[![Bestpet-54In-Cat-Tree-Tower-For-Indoor-Cats-Multi-Level](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/BestPet-54in-Multi-Level-Furniture-Scratching/dp/B0BBGCLP7S/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -275,7 +275,7 @@ I really enjoy this cat tree tower. It's well made, and it's sturdy enough to ha
 
 ---
  
-  ## [Pawstory Cat Tree Cat Tower Sisal Scratching](/Pawstory-Cat-Tree-Cat-Tower--Sisal-Scratching)
+  ## [Pawstory Cat Tree Cat Tower Sisal Scratching](/reviews/pawstory-cat-tree-cat-tower-sisal-scratching)
 [![Pawstory-Cat-Tree-Cat-Tower-Sisal-Scratching](<https://images-na.ssl-images-amazon.com/images/I/813+xpP6h7L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Pawstory-Scratching-Multi-Level-Hammock-Furniture/dp/B09YRF88S5/?tag=cattreeguide-20>)[![Pawstory-Cat-Tree-Cat-Tower-Sisal-Scratching](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Pawstory-Scratching-Multi-Level-Hammock-Furniture/dp/B09YRF88S5/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -312,8 +312,8 @@ My cats are seriously in love with this cat tree. The hammock is too small for m
 
 ---
 
-  ## [Tscomon 36.6 Multi-Level Cat Tree Cat Tower For](/Tscomon-36.6-Multi-Level-Cat-Tree-Cat-Tower-For)
-[![Tscomon-36.6  -Multi-Level-Cat-Tree-Cat-Tower-For](<https://images-na.ssl-images-amazon.com/images/I/61+TUm5U4dL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/TSCOMON-Multi-Level-Scratching-Hammock-Hanging/dp/B09X9V5QFT/?tag=cattreeguide-20>)[![Tscomon-36.6  -Multi-Level-Cat-Tree-Cat-Tower-For](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/TSCOMON-Multi-Level-Scratching-Hammock-Hanging/dp/B09X9V5QFT/?tag=cattreeguide-20>)
+  ## [Tscomon 36.6 Multi-Level Cat Tree Cat Tower](/reviews/tscomon-36.6-multi-level-cat-tree-cat-tower)
+[![Tscomon-36.6  -Multi-Level-Cat-Tree-Cat-Tower](<https://images-na.ssl-images-amazon.com/images/I/61+TUm5U4dL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/TSCOMON-Multi-Level-Scratching-Hammock-Hanging/dp/B09X9V5QFT/?tag=cattreeguide-20>)[![Tscomon-36.6  -Multi-Level-Cat-Tree-Cat-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/TSCOMON-Multi-Level-Scratching-Hammock-Hanging/dp/B09X9V5QFT/?tag=cattreeguide-20>)
 
 ### Product Description 
 
@@ -349,7 +349,7 @@ If you are looking for a tall Cat Tree that your cats can use to look out of a w
 
 ---
 
-  ## [Fish&Nap Us09M Cute Cat Tree For Indoor Cat](/Fish&Nap-Us09M-Cute-Cat-Tree-For-Indoor-Cat)
+  ## [Fish&Nap Us09M Cute Cat Tree For Indoor Cat](/reviews/Fish-Nap-Us09m-cute-cat-tree-for-indoor-cat)
 [![Fish&Nap-Us09M-Cute-Cat-Tree-For-Indoor-Cat](<https://images-na.ssl-images-amazon.com/images/I/61v3jsOJ15L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B08BJSSL4S/?tag=cattreeguide-20>)[![Fish&Nap-Us09M-Cute-Cat-Tree-For-Indoor-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B08BJSSL4S/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -386,8 +386,8 @@ My cat loves this product. To give you some background I have a cat who follows 
 
 ---
  
-  ## [Fish&Nap Us11Mi Cute Cat Tree For Indoor Cat](/Fish&Nap-Us11Mi-Cute-Cat-Tree-For-Indoor-Cat)
-[![Fish&Nap-Us11Mi-Cute-Cat-Tree-For-Indoor-Cat](<https://images-na.ssl-images-amazon.com/images/I/61X0tg-yf3L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B08VGZVXJR/?tag=cattreeguide-20>)[![Fish&Nap-Us11Mi-Cute-Cat-Tree-For-Indoor-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B08VGZVXJR/?tag=cattreeguide-20>)
+  ## [Fish&Nap Us11Mi Cute Cat Tree For Indoor Cat](/reviews/fish-nap-us11mi-cute-cat-tree-for-indoor-cat)
+[![Fish-Nap-Us11Mi-Cute-Cat-Tree-For-Indoor-Cat](<https://images-na.ssl-images-amazon.com/images/I/61X0tg-yf3L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B08VGZVXJR/?tag=cattreeguide-20>)[![Fish&Nap-Us11Mi-Cute-Cat-Tree-For-Indoor-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B08VGZVXJR/?tag=cattreeguide-20>)
 
 ### Product Description 
 
@@ -424,8 +424,8 @@ The cat tree is excellent. We've bought at least three for our other cats in the
 
 ---
  
-  ## [Amazon Basics Medium Platform Cat Tree Tower ](/Amazon-Basics-Medium-Platform-Cat-Tree-Tower-)
-[![Amazon-Basics-Medium-Platform-Cat-Tree-Tower-](<https://images-na.ssl-images-amazon.com/images/I/51lBQgdDB2L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/AmazonBasics-Platform-Cat-Tree-Medium/dp/B07FVXSB8Q/?tag=cattreeguide-20>)[![Amazon-Basics-Medium-Platform-Cat-Tree-Tower-](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/AmazonBasics-Platform-Cat-Tree-Medium/dp/B07FVXSB8Q/?tag=cattreeguide-20>)
+  ## [Amazon Basics Medium Platform Cat Tree Tower ](/reviews/amazon-basics-medium-platform-cat-tree-tower)
+[![Amazon-Basics-Medium-Platform-Cat-Tree-Tower](<https://images-na.ssl-images-amazon.com/images/I/51lBQgdDB2L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/AmazonBasics-Platform-Cat-Tree-Medium/dp/B07FVXSB8Q/?tag=cattreeguide-20>)[![Amazon-Basics-Medium-Platform-Cat-Tree-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/AmazonBasics-Platform-Cat-Tree-Medium/dp/B07FVXSB8Q/?tag=cattreeguide-20>)
 
 ### Product Description 
 
@@ -461,7 +461,7 @@ The Amazon Basics Cat Tree with Platform, Scratching Posts provides tons of spac
 
 ---
  
-  ## [Fish&Nap Us01M Cute Cat Tree For Indoor Cat](/Fish&Nap-Us01M-Cute-Cat-Tree-For-Indoor-Cat)
+  ## [Fish&Nap Us01M Cute Cat Tree For Indoor Cat](/reviews/fish-nap-us01m-cute-cat-tree-for-indoor-cat)
 [![Fish&Nap-Us01M-Cute-Cat-Tree-For-Indoor-Cat](<https://images-na.ssl-images-amazon.com/images/I/612P+M9ZkjL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B084JNXCBR/?tag=cattreeguide-20>)[![Fish&Nap-Us01M-Cute-Cat-Tree-For-Indoor-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FISH-NAP-Scratching-Platform-Furniture/dp/B084JNXCBR/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -498,7 +498,7 @@ This is a lovely little bed, and my cats are happy with it. It's not big, but it
 
 ---
  
-  ## [Feandrea Cat Tower Cat Tree For Indoor Cats](/Feandrea-Cat-Tower-Cat-Tree-For-Indoor-Cats)
+  ## [Feandrea Cat Tower Cat Tree For Indoor Cats](/reviews/feandrea-cat-tower-cat-tree-for-indoor-cats)
 [![Feandrea-Cat-Tower-Cat-Tree-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/81sxs528l0L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-45-3-Inch-Scratching-Apartment-UPCT141W01/dp/B08MPWZDHS/?tag=cattreeguide-20>)[![Feandrea-Cat-Tower-Cat-Tree-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-45-3-Inch-Scratching-Apartment-UPCT141W01/dp/B08MPWZDHS/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -536,7 +536,7 @@ My cat loves this tree. Up top, there's a little hammock and even a hole for hid
 
 ---
 
-  ## [Amazon Basics Cat Tree Indoor Climbing Activity Cat](/Amazon-Basics-Cat-Tree-Indoor-Climbing-Activity-Cat)
+  ## [Amazon Basics Cat Tree Indoor Climbing Activity Cat](/reviews/amazon-basics-cat-tree-indoor-climbing-activity-cat)
 [![Amazon-Basics-Cat-Tree-Indoor-Climbing-Activity-Cat](<https://images-na.ssl-images-amazon.com/images/I/91mqPXJY2OL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/AmazonBasics-Activity-Scratching-Posts-Medium/dp/B017WXWZ6Y/?tag=cattreeguide-20>)[![Amazon-Basics-Cat-Tree-Indoor-Climbing-Activity-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/AmazonBasics-Activity-Scratching-Posts-Medium/dp/B017WXWZ6Y/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -575,7 +575,7 @@ I have seen some "cheapo" towers in other people's homes that are poorly made an
 
 ---
  
-  ## [Feandrea Cat Tree Small Cat Tower Widened](/Feandrea-Cat-Tree-Small-Cat-Tower--Widened)
+  ## [Feandrea Cat Tree Small Cat Tower Widened](/reviews/feandrea-cat-tree-small-cat-tower-widened)
 [![Feandrea-Cat-Tree-Small-Cat-Tower-Widened](<https://images-na.ssl-images-amazon.com/images/I/818RtCXAouL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT51W/dp/B07Q2B3B89/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Small-Cat-Tower-Widened](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT51W/dp/B07Q2B3B89/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -612,7 +612,7 @@ This cat tower is the best purchase I've made for my cat. I wanted him to be abl
 
 ---
 
-  ## [Feandrea Cat Tree For Large Cats 22-Inch Widened](/Feandrea-Cat-Tree-For-Large-Cats-22-Inch-Widened)
+  ## [Feandrea Cat Tree For Large Cats 22-Inch Widened](/reviews/feandrea-cat-tree-for-large-cats-22-inch-widened)
 [![Feandrea-Cat-Tree-For-Large-Cats-22-Inch-Widened](<https://images-na.ssl-images-amazon.com/images/I/71p6POUZGoL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-22-Inch-Scratching-Multi-Level-33-1-Inch/dp/B07M66Z35Q/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-For-Large-Cats-22-Inch-Widened](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-22-Inch-Scratching-Multi-Level-33-1-Inch/dp/B07M66Z35Q/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -650,7 +650,7 @@ Result (click "Generate" to refresh) Copy to clipboard  Preview
 
 ---
  
-  ## [Tinweius 01A Cat Tree Scratching Toy Activity Centre](/Tinweius-01A-Cat-Tree-Scratching-Toy-Activity-Centre)
+  ## [Tinweius 01A Cat Tree Scratching Toy Activity Centre](/reviews/tinweius-01a-cat-tree-scratching-toy-activity-centre)
 [![Tinweius-01A-Cat-Tree-Scratching-Toy-Activity-Centre](<https://images-na.ssl-images-amazon.com/images/I/818pHp3sNmL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/TINWEIUS-Scratching-Activity-Centre-Furniture/dp/B07SRRMPWS/?tag=cattreeguide-20>)[![Tinweius-01A-Cat-Tree-Scratching-Toy-Activity-Centre](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/TINWEIUS-Scratching-Activity-Centre-Furniture/dp/B07SRRMPWS/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -687,7 +687,7 @@ The TINWEI cat tree is a great size for our smaller cat, and it has had a lot of
 
 ---
 
-  ## [Mwpo 63.8 Inches Multi-Level Cat Tree For Large](/Mwpo-63.8-Inches-Multi-Level-Cat-Tree-For-Large)
+  ## [Mwpo 63.8 Inches Multi-Level Cat Tree For Large](/reviews/mwpo-63.8-inches-multi-level-cat-tree-for-large)
 [![Mwpo-63.8-Inches-Multi-Level-Cat-Tree-For-Large](<https://images-na.ssl-images-amazon.com/images/I/71OPC+yNMWL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/MWPO-Multi-Level-Sisal-Covered-Scratching-House-Beige/dp/B08KFZSBYC/?tag=cattreeguide-20>)[![Mwpo-63.8-Inches-Multi-Level-Cat-Tree-For-Large](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/MWPO-Multi-Level-Sisal-Covered-Scratching-House-Beige/dp/B08KFZSBYC/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -729,7 +729,7 @@ Suggestions - Better instructions for putting the ladder on would have been help
 
 ---
 
-  ## [Yaheetech 62.2 Inches Cat Tree Cat Towers Cat](/Yaheetech-62.2-Inches-Cat-Tree-Cat-Towers-Cat)
+  ## [Yaheetech 62.2 Inches Cat Tree Cat Towers Cat](/reviews/yaheetech-62.2-inches-cat-tree-cat-towers-cat)
 [![Yaheetech-62.2-Inches-Cat-Tree-Cat-Towers-Cat](<https://images-na.ssl-images-amazon.com/images/I/61WfiKjVW+L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/YAHEETECH-Platform-Hammock-Scratching-Activity/dp/B08DQZQC3Y/?tag=cattreeguide-20>)[![Yaheetech-62.2-Inches-Cat-Tree-Cat-Towers-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/YAHEETECH-Platform-Hammock-Scratching-Activity/dp/B08DQZQC3Y/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -768,7 +768,7 @@ Assembly was easy, but I must warn you, there are a lot of pieces. I recommend u
 
 ---
  
-  ## [Feandrea Cat Tree Large Cat Tower 64.6 Inches](/Feandrea-Cat-Tree-Large-Cat-Tower-64.6-Inches)
+  ## [Feandrea Cat Tree Large Cat Tower 64.6 Inches](/reviews/feandrea-cat-tree-large-cat-tower-64.6-inches)
 [![Feandrea-Cat-Tree-Large-Cat-Tower-64.6-Inches](<https://images-na.ssl-images-amazon.com/images/I/712DXUY5PiL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-Activity-Hammock-Removable-UPCT087W01/dp/B0876MGDMK/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Large-Cat-Tower-64.6-Inches](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-Activity-Hammock-Removable-UPCT087W01/dp/B0876MGDMK/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -805,7 +805,7 @@ It is easy to set up and it is nice and tall for a tower. It also has a button s
 
 ---
 
-  ## [Yaheetech Cat Tree House Condo Perch Pet Tower](/Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower)
+  ## [Yaheetech Cat Tree House Condo Perch Pet Tower](/reviews/yaheetech-cat-tree-house-condo-perch-pet-tower)
 [![Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower](<https://images-na.ssl-images-amazon.com/images/I/61xAVHxH-YL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-House-Condo-Perch-Kittens/dp/B07WZK5C4H/?tag=cattreeguide-20>)[![Yaheetech-Cat-Tree-House-Condo-Perch-Pet-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-House-Condo-Perch-Kittens/dp/B07WZK5C4H/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -842,7 +842,7 @@ I was impressed by the Yaheetech Cat Tree Tower Kitten Condo Scratching Post wit
 
 ---
 
-  ## [Feandrea Cat Tree 66.1-Inch Large Cat Tower](/Feandrea-Cat-Tree-66.1-Inch-Large-Cat-Tower)
+  ## [Feandrea Cat Tree 66.1-Inch Large Cat Tower](/reviews/feandrea-cat-tree-66.1-inch-large-cat-tower)
 [![Feandrea-Cat-Tree-66.1-Inch-Large-Cat-Tower](<https://images-na.ssl-images-amazon.com/images/I/71kDg00-cWL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-66-1-Inch-Scratching-Perches-Multi-Level/dp/B09YLP5F38/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-66.1-Inch-Large-Cat-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-66-1-Inch-Scratching-Perches-Multi-Level/dp/B09YLP5F38/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -880,7 +880,7 @@ If you have a large house and want to give your cats a space to climb, this is t
 
 ---
 
-  ## [Feandrea Cat Tree Cat Tower Sisal-Covered Scratching](/Feandrea-Cat-Tree-Cat-Tower-Sisal-Covered-Scratching)
+  ## [Feandrea Cat Tree Cat Tower Sisal-Covered Scratching](/reviews/feandrea-cat-tree-cat-tower-sisal-covered-scratching)
 [![Feandrea-Cat-Tree-Cat-Tower-Sisal-Covered-Scratching](<https://images-na.ssl-images-amazon.com/images/I/81fnDzURA9L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT50W/dp/B07Q2B1BC4/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Cat-Tower-Sisal-Covered-Scratching](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-Sisal-Covered-Scratching-Posts-UPCT50W/dp/B07Q2B1BC4/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -917,7 +917,7 @@ I am really impressed with the design of this cat tree. It is perfect for a smal
 
 ---
 
-  ## [Petepela Cat Tree For Small Cats Plush Cat](/Petepela-Cat-Tree-For-Small-Cats-Plush-Cat)
+  ## [Petepela Cat Tree For Small Cats Plush Cat](/reviews/petepela-cat-tree-for-small-cats-plush-cat)
 [![Petepela-Cat-Tree-For-Small-Cats-Plush-Cat](<https://images-na.ssl-images-amazon.com/images/I/718VfaMjRDL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PETEPELA-Small-Hammock-Scratching-Kittens/dp/B0B1T7QF9F/?tag=cattreeguide-20>)[![Petepela-Cat-Tree-For-Small-Cats-Plush-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PETEPELA-Small-Hammock-Scratching-Kittens/dp/B0B1T7QF9F/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -951,7 +951,7 @@ I was looking for a small cat tree for my four-leg friends and found the perfect
 
 ---
 
-  ## [Amazon Basics Large Dual Platform Cat Condo Tree](/Amazon-Basics-Large-Dual-Platform-Cat-Condo-Tree)
+  ## [Amazon Basics Large Dual Platform Cat Condo Tree](/reviews/amazon-basics-large-dual-platform-cat-condo-tree)
 [![Amazon-Basics-Large-Dual-Platform-Cat-Condo-Tree](<https://images-na.ssl-images-amazon.com/images/I/71khPAELzdS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/AmazonBasics-Cat-Tree-Platform-Beige/dp/B07G3R2V3C/?tag=cattreeguide-20>)[![Amazon-Basics-Large-Dual-Platform-Cat-Condo-Tree](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/AmazonBasics-Cat-Tree-Platform-Beige/dp/B07G3R2V3C/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -988,7 +988,7 @@ The Amazon Basics Cat Tree with Platform and Scratching Posts is a multi-level c
 
 ---
 
-  ## [Negtte Cat Tree For Indoor Cats- Multi-Level Cat](/Negtte-Cat-Tree-For-Indoor-Cats-Multi-Level-Cat)
+  ## [Negtte Cat Tree For Indoor Cats- Multi-Level Cat](/reviews/negtte-cat-tree-for-indoor-cats-multi-level-cat)
 [![Negtte-Cat-Tree-For-Indoor-Cats-Multi-Level-Cat](<https://images-na.ssl-images-amazon.com/images/I/71VSKAhAUJS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/NEGTTE-Indoor-Cats-Multi-Level-Condo/dp/B092VPM7R8/?tag=cattreeguide-20>)[![Negtte-Cat-Tree-For-Indoor-Cats-Multi-Level-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/NEGTTE-Indoor-Cats-Multi-Level-Condo/dp/B092VPM7R8/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1025,7 +1025,7 @@ I love this cat tree and so do my cats!  The assembly was easy. It is sturdy and
 
 ---
 
-  ## [Petepela Cat Tree 5-Tier Floor To Ceiling Cat](/Petepela-Cat-Tree-5-Tier-Floor-To-Ceiling-Cat)
+  ## [Petepela Cat Tree 5-Tier Floor To Ceiling Cat](/reviews/petepela-cat-tree-5-tier-floor-to-ceiling-cat)
 [![Petepela-Cat-Tree-5-Tier-Floor-To-Ceiling-Cat](<https://images-na.ssl-images-amazon.com/images/I/51dG2AAcLzL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PETEPELA-Adjustable-Featuring-Scratching-Interactive/dp/B09SYQZTS5/?tag=cattreeguide-20>)[![Petepela-Cat-Tree-5-Tier-Floor-To-Ceiling-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PETEPELA-Adjustable-Featuring-Scratching-Interactive/dp/B09SYQZTS5/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1062,7 +1062,7 @@ The pet tree is a good selection for indoor cats that need exercise. I like the 
 
 ---
  
-  ## [Heybly Cat Tree 73 Inches Xxl Large Cat](/Heybly-Cat-Tree-73-Inches-Xxl-Large-Cat)
+  ## [Heybly Cat Tree 73 Inches Xxl Large Cat](/reviews/heybly-cat-tree-73-inches-xxl-large-cat)
 [![Heybly-Cat-Tree-73-Inches-Xxl-Large-Cat](<https://images-na.ssl-images-amazon.com/images/I/61RmWp0ro6L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-inches-Multi-Level-Furniture-Scratching/dp/B09Y8GRZCF/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-73-Inches-Xxl-Large-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-inches-Multi-Level-Furniture-Scratching/dp/B09Y8GRZCF/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1096,7 +1096,7 @@ This is a pretty tall cat tree and my cats love it. It can be wobbly and I would
 
 ---
 
-  ## [Heybly Cat Tree Cat Tower For Indoor Cats](/Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats)
+  ## [Heybly Cat Tree Cat Tower For Indoor Cats](/reviews/heybly-cat-tree-cat-tower-for-indoor-cats)
 [![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/61-alpqIsGL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT023M/dp/B09XX5K937/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-Multi-Level-Furniture-Scratching-HCT023M/dp/B09XX5K937/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1130,8 +1130,8 @@ I would say I had an overall positive experience with the tree. It took me about
 
 ---
  
-  ## [Yunwei Newest Cat Tree Cat Condo And](/Yunwei-Newest-Cat-Tree--Cat-Condo-And)
-[![Yunwei-Newest-Cat-Tree-Cat-Condo-And](<https://images-na.ssl-images-amazon.com/images/I/81TkmI4iwRL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/YUNWEI-Newest-Tree-Condo-Hammock%EF%BC%8CGrey/dp/B084YZWS2C/?tag=cattreeguide-20>)[![Yunwei-Newest-Cat-Tree-Cat-Condo-And](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/YUNWEI-Newest-Tree-Condo-Hammock%EF%BC%8CGrey/dp/B084YZWS2C/?tag=cattreeguide-20>)
+  ## [Yunwei Newest Cat Tree Cat Condo](/reviews/yunwei-newest-cat-tree-cat-condo)
+[![Yunwei-Newest-Cat-Tree-Cat-Condo](<https://images-na.ssl-images-amazon.com/images/I/81TkmI4iwRL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/YUNWEI-Newest-Tree-Condo-Hammock%EF%BC%8CGrey/dp/B084YZWS2C/?tag=cattreeguide-20>)[![Yunwei-Newest-Cat-Tree-Cat-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/YUNWEI-Newest-Tree-Condo-Hammock%EF%BC%8CGrey/dp/B084YZWS2C/?tag=cattreeguide-20>)
 
 ### Product Description 
 
@@ -1166,7 +1166,7 @@ After figuring out the difficult assembly process, it was totally worth it. This
 
 ---
 
-  ## [Heybly Cat Tree Cat Tower Condo Sisal-Covered](/Heybly-Cat-Tree-Cat-Tower-Condo--Sisal-Covered)
+  ## [Heybly Cat Tree Cat Tower Condo Sisal-Covered](/reviews/heybly-cat-tree-cat-tower-condo-sisal-covered)
 [![Heybly-Cat-Tree-Cat-Tower-Condo-Sisal-Covered](<https://images-na.ssl-images-amazon.com/images/I/71-ZF0-XFdL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Heybly-Sisal-Covered-Scratching-Basket-HCT002SW/dp/B098B1LRLD/?tag=cattreeguide-20>)[![Heybly-Cat-Tree-Cat-Tower-Condo-Sisal-Covered](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Heybly-Sisal-Covered-Scratching-Basket-HCT002SW/dp/B098B1LRLD/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1203,7 +1203,7 @@ My little kittens love this thing and I love them so it's a win-win. The instruc
 
 ---
  
-  ## [Hey-Brother Cat Tree Sisal Scratching Posts Cat](/Hey-Brother-Cat-Tree-Sisal-Scratching-Posts-Cat)
+  ## [Hey-Brother Cat Tree Sisal Scratching Posts Cat](/reviews/hey-brother-cat-tree-sisal-scratching-posts-cat)
 [![Hey-Brother-Cat-Tree-Sisal-Scratching-Posts-Cat](<https://images-na.ssl-images-amazon.com/images/I/71Z2mn5E+qS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Scratching-Multi-Level-Basket-MPJ014M/dp/B08YX86TNN/?tag=cattreeguide-20>)[![Hey-Brother-Cat-Tree-Sisal-Scratching-Posts-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Scratching-Multi-Level-Basket-MPJ014M/dp/B08YX86TNN/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1239,7 +1239,7 @@ I bought this because my cats were using the tops of their cat tree as scratchin
 
 ---
  
-  ## [Vesper Cat Tree High Base Black 52046](/Vesper-Cat-Tree-High-Base-Black-52046)
+  ## [Vesper Cat Tree High Base Black 52046](/reviews/vesper-cat-tree-high-base-black-52046)
 [![Vesper-Cat-Tree-High-Base-Black-52046](<https://images-na.ssl-images-amazon.com/images/I/71OOcmmttGL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Vesper-Furniture-Black-V-High-Base/dp/B00SOTG26K/?tag=cattreeguide-20>)[![Vesper-Cat-Tree-High-Base-Black-52046](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Vesper-Furniture-Black-V-High-Base/dp/B00SOTG26K/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1276,7 +1276,7 @@ Vesper Cat Furniture is perfect if you're on the lookout for a cat tower that wi
 
 ---
  
-  ## [Hey-Brother Xl Size Cat Tree 73.4 Inch Cat](/Hey-Brother-Xl-Size-Cat-Tree-73.4-Inch-Cat)
+  ## [Hey-Brother Xl Size Cat Tree 73.4 Inch Cat](/reviews/hey-brother-xl-size-cat-tree-73.4-inch-cat)
 [![Hey-Brother-Xl-Size-Cat-Tree-73.4-Inch-Cat](<https://images-na.ssl-images-amazon.com/images/I/61anKPQfV2L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Perches-Scratching-Activity-MPJ0032M/dp/B08FRGF4KF/?tag=cattreeguide-20>)[![Hey-Brother-Xl-Size-Cat-Tree-73.4-Inch-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Perches-Scratching-Activity-MPJ0032M/dp/B08FRGF4KF/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1313,7 +1313,7 @@ The size of this cat house is perfect for my two large cats. It's well padded, t
 
 ---
 
-  ## [Yaheetech 23.5In Cat Tree Tower Cat Condo](/Yaheetech-23.5In-Cat-Tree-Tower-Cat-Condo-)
+  ## [Yaheetech 23.5In Cat Tree Tower Cat Condo](/reviews/yaheetech-23.5in-cat-tree-tower-cat-condo)
 [![Yaheetech-23.5In-Cat-Tree-Tower-Cat-Condo](<https://images-na.ssl-images-amazon.com/images/I/81uhLxFAReS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B098XH2F54/?tag=cattreeguide-20>)[![Yaheetech-23.5In-Cat-Tree-Tower-Cat-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B098XH2F54/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1350,7 +1350,7 @@ It took me about 2 hours to put it together, but it is heavy and somewhat diffic
 
 ---
 
-  ## [Hey-Brother Multi-Level Cat Tree Large Cat Tower](/Hey-Brother-Multi-Level-Cat-Tree-Large-Cat-Tower)
+  ## [Hey-Brother Multi-Level Cat Tree Large Cat Tower](/reviews/hey-brother-multi-level-cat-tree-large-cat-tower)
 [![Hey-Brother-Multi-Level-Cat-Tree-Large-Cat-Tower](<https://images-na.ssl-images-amazon.com/images/I/61IIZu+Ya9S._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Multi-Level-Hammock-Scratching-MPJ0026M/dp/B08FRF63CL/?tag=cattreeguide-20>)[![Hey-Brother-Multi-Level-Cat-Tree-Large-Cat-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Multi-Level-Hammock-Scratching-MPJ0026M/dp/B08FRF63CL/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1387,8 +1387,8 @@ This multi-level cat tree is a great investment for those looking to provide the
 
 ---
  
-  ## [Petmaker 3-Tier Cat Tower Collection - 2 Carpeted](/Petmaker-3-Tier-Cat-Tower-Collection---2-Carpeted)
-[![Petmaker-3-Tier-Cat-Tower-Collection---2-Carpeted](<https://images-na.ssl-images-amazon.com/images/I/71VwsJJrkAL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PETMAKER-Tree-Tier-Hanging-Scratching/dp/B06WP9Q6CR/?tag=cattreeguide-20>)[![Petmaker-3-Tier-Cat-Tower-Collection---2-Carpeted](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PETMAKER-Tree-Tier-Hanging-Scratching/dp/B06WP9Q6CR/?tag=cattreeguide-20>)
+  ## [Petmaker 3-Tier Cat Tower Collection - 2 Carpeted](/reviews/petmaker-3-tier-cat-tower-collection-2-carpeted)
+[![Petmaker-3-Tier-Cat-Tower-Collection-2-Carpeted](<https://images-na.ssl-images-amazon.com/images/I/71VwsJJrkAL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PETMAKER-Tree-Tier-Hanging-Scratching/dp/B06WP9Q6CR/?tag=cattreeguide-20>)[![Petmaker-3-Tier-Cat-Tower-Collection-2-Carpeted](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PETMAKER-Tree-Tier-Hanging-Scratching/dp/B06WP9Q6CR/?tag=cattreeguide-20>)
 
 ### Product Description 
 
@@ -1424,7 +1424,7 @@ It's an awesome product, but it's not for a full grown cat. My cat is an average
 
 ---
 
-  ## [Hey-Brother Multi-Level Cat Tree Condo For Large Cats](/Hey-Brother-Multi-Level-Cat-Tree-Condo-For-Large-Cats)
+  ## [Hey-Brother Multi-Level Cat Tree Condo For Large Cats](/reviews/hey-brother-multi-level-cat-tree-condo-for-large-cats)
 [![Hey-Brother-Multi-Level-Cat-Tree-Condo-For-Large-Cats](<https://images-na.ssl-images-amazon.com/images/I/61SK0JB6gLL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Multi-Level-Scratching-Padded-MPJ0025M/dp/B08FR7K8T9/?tag=cattreeguide-20>)[![Hey-Brother-Multi-Level-Cat-Tree-Condo-For-Large-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Multi-Level-Scratching-Padded-MPJ0025M/dp/B08FR7K8T9/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1461,7 +1461,7 @@ It’s a great choice if you need to separate two cats that hate each other. The
 
 ---
 
-  ## [Yaheetech 62In Extra Large Cat Tree Condo](/Yaheetech-62In-Extra-Large-Cat-Tree-Condo-)
+  ## [Yaheetech 62In Extra Large Cat Tree Condo](/reviews/yaheetech-62in-extra-large-cat-tree-condo)
 [![Yaheetech-62In-Extra-Large-Cat-Tree-Condo](<https://images-na.ssl-images-amazon.com/images/I/51hBkwPtRbL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B07TSBMKKF/?tag=cattreeguide-20>)[![Yaheetech-62In-Extra-Large-Cat-Tree-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Sisal-Covered-Scratching-Activity-Furniture/dp/B07TSBMKKF/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1498,8 +1498,8 @@ This is one of the best cat trees I've ever seen. It is a great height for both 
 
 ---
 
-  ## [Hey-Brother Cat Tree Cat Tower 2 Cozy](/Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy)
-[![Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy](<https://images-na.ssl-images-amazon.com/images/I/71FdPXre-mL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)[![Hey-Brother-Cat-Tree-Cat-Tower--2-Cozy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)
+  ## [Hey-Brother Cat Tree Cat Tower 2 Cozy](/reviews/hey-brother-cat-tree-cat-tower-2-cozy)
+[![Hey-Brother-Cat-Tree-Cat-Tower-2-Cozy](<https://images-na.ssl-images-amazon.com/images/I/71FdPXre-mL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)[![Hey-Brother-Cat-Tree-Cat-Tower-2-Cozy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Hey-brother-Tower-Condos-Basket-MPJ005SM/dp/B09QSLTDR1/?tag=cattreeguide-20>)
 
 ### Product Description 
 
@@ -1535,7 +1535,7 @@ It’s the perfect compact playground for your light-footed house tiger. Sharpen
 
 ---
 
-  ## [Bypass Cat Tree 30 Cactus Cat Tower](/Bypass-Cat-Tree-30-Cactus-Cat-Tower)
+  ## [Bypass Cat Tree 30 Cactus Cat Tower](/reviews/bypass-cat-tree-30-cactus-cat-tower)
 [![Bypass-Cat-Tree-30-Cactus-Cat-Tower](<https://images-na.ssl-images-amazon.com/images/I/6131ivr2qNL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/BYPASS-Scratching-Hammock-Dangling-Furniture/dp/B0B5YZ4ZM8/?tag=cattreeguide-20>)[![Bypass-Cat-Tree-30-Cactus-Cat-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/BYPASS-Scratching-Hammock-Dangling-Furniture/dp/B0B5YZ4ZM8/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1569,7 +1569,7 @@ The BYPASS Cat Tower is a great, and affordable, way for any cat owner to provid
 
 ---
 
-  ## [Yaheetech Cat Tree For Indoor Cats 36In Cat](/Yaheetech-Cat-Tree-For-Indoor-Cats-36In-Cat)
+  ## [Yaheetech Cat Tree For Indoor Cats 36In Cat](/reviews/yaheetech-cat-tree-for-indoor-cats-36in-cat)
 [![Yaheetech-Cat-Tree-For-Indoor-Cats-36In-Cat](<https://images-na.ssl-images-amazon.com/images/I/81NS1NKEY-L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/YAHEETECH-36in-Tree-Tower-Kittens/dp/B08DFV1DSB/?tag=cattreeguide-20>)[![Yaheetech-Cat-Tree-For-Indoor-Cats-36In-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/YAHEETECH-36in-Tree-Tower-Kittens/dp/B08DFV1DSB/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1606,7 +1606,7 @@ I ordered this cat tree in black. It is not black. I'm not sure why the box was 
 
 ---
  
-  ## [Catforest Floor-To-Ceiling Cat Tree Cat Climbing Tower](/Catforest-Floor-To-Ceiling-Cat-Tree-Cat-Climbing-Tower)
+  ## [Catforest Floor-To-Ceiling Cat Tree Cat Climbing Tower](/reviews/catforest-floor-to-ceiling-cat-tree-cat-climbing-tower)
 [![Catforest-Floor-To-Ceiling-Cat-Tree-Cat-Climbing-Tower](<https://images-na.ssl-images-amazon.com/images/I/518ikIFDuOL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Floor-Ceiling-Climbing-Natural-Scratching/dp/B08XY2J1MW/?tag=cattreeguide-20>)[![Catforest-Floor-To-Ceiling-Cat-Tree-Cat-Climbing-Tower](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Floor-Ceiling-Climbing-Natural-Scratching/dp/B08XY2J1MW/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1641,7 +1641,7 @@ This cat tree is a great size and has the perfect look. It blends well in my liv
 
 ---
 
-  ## [Made4Pets Cat Tree Cat Tower For Indoor Cats](/Made4Pets-Cat-Tree-Cat-Tower-For-Indoor-Cats)
+  ## [Made4Pets Cat Tree Cat Tower For Indoor Cats](/reviews/made4pets-cat-tree-cat-tower-for-indoor-cats)
 [![Made4Pets-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://images-na.ssl-images-amazon.com/images/I/61rMrIfuauL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Made4Pets-Inches-Scratching-Hammock-Removable/dp/B081RVTTJ1/?tag=cattreeguide-20>)[![Made4Pets-Cat-Tree-Cat-Tower-For-Indoor-Cats](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Made4Pets-Inches-Scratching-Hammock-Removable/dp/B081RVTTJ1/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1678,7 +1678,7 @@ This cat condo is the perfect solution for small living spaces and apartment dwe
 
 ---
 
-  ## [Go Pet Club 62-Inch Cat Tree Beige 38](/Go-Pet-Club-62-Inch-Cat-Tree-Beige-38)
+  ## [Go Pet Club 62-Inch Cat Tree Beige 38](/reviews/go-pet-club-62-inch-cat-tree-beige-38)
 [![Go-Pet-Club-62-Inch-Cat-Tree-Beige-38](<https://images-na.ssl-images-amazon.com/images/I/81rfELM+0CL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Go-Pet-Club-Condo-Furniture/dp/B007UI47PY/?tag=cattreeguide-20>)[![Go-Pet-Club-62-Inch-Cat-Tree-Beige-38](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Go-Pet-Club-Condo-Furniture/dp/B007UI47PY/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1715,7 +1715,7 @@ The quality is pretty good, but the hammock is a little loose and the hooks come
 
 ---
 
-  ## [Feandrea Cat Tree Small Cat Tower 33.1-Inch Cat](/Feandrea-Cat-Tree-Small-Cat-Tower-33.1-Inch-Cat)
+  ## [Feandrea Cat Tree Small Cat Tower 33.1-Inch Cat](/reviews/feandrea-cat-tree-small-cat-tower-33.1-inch-cat)
 [![Feandrea-Cat-Tree-Small-Cat-Tower-33.1-Inch-Cat](<https://images-na.ssl-images-amazon.com/images/I/71gVSJ2NCTL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/FEANDREA-33-1-Inch-Removable-Washable-UPCT142W01/dp/B08NV16GDH/?tag=cattreeguide-20>)[![Feandrea-Cat-Tree-Small-Cat-Tower-33.1-Inch-Cat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/FEANDREA-33-1-Inch-Removable-Washable-UPCT142W01/dp/B08NV16GDH/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1752,7 +1752,7 @@ I love this cat tree, but I do wish I had purchased the next size up. I have two
 
 ---
 
-  ## [Pequlti 51.4 Inches Modern Cat Tree Premium 6](/Pequlti-51.4-Inches-Modern-Cat-Tree-Premium-6)
+  ## [Pequlti 51.4 Inches Modern Cat Tree Premium 6](/reviews/pequlti-51.4-inches-modern-cat-tree-premium-6)
 [![Pequlti-51.4-Inches-Modern-Cat-Tree-Premium-6](<https://images-na.ssl-images-amazon.com/images/I/61Wo03Cik3L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/PEQULTI-Premium-Covered-Scratching-Spacious/dp/B098JGL1YY/?tag=cattreeguide-20>)[![Pequlti-51.4-Inches-Modern-Cat-Tree-Premium-6](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/PEQULTI-Premium-Covered-Scratching-Spacious/dp/B098JGL1YY/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1789,7 +1789,7 @@ Very nice product.. only issue I had was the nuts and bolts fell out of the pack
 
 ---
  
-  ## [Huitree Cat Tree Scratching Post And Hanging](/Huitree-Cat-Tree-Scratching-Post-And-Hanging)
+  ## [Huitree Cat Tree Scratching Post And Hanging](/reviews/huitree-cat-tree-scratching-post-and-hanging)
 [![Huitree-Cat-Tree-Scratching-Post-And-Hanging](<https://images-na.ssl-images-amazon.com/images/I/81c05g3EK9L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/HUITREE-Tree-Scratching-Post-Hanging/dp/B08YD9WHK9/?tag=cattreeguide-20>)[![Huitree-Cat-Tree-Scratching-Post-And-Hanging](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/HUITREE-Tree-Scratching-Post-Hanging/dp/B08YD9WHK9/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1825,7 +1825,7 @@ We bought this for a playpen for young kittens that are not yet ready to be play
 
 ---
  
-  ## [Yaheetech Cat Tree Cat Tower Multilevel Cat Condo](/Yaheetech-Cat-Tree-Cat-Tower-Multilevel-Cat-Condo)
+  ## [Yaheetech Cat Tree Cat Tower Multilevel Cat Condo](/reviews/yaheetech-cat-tree-cat-tower-multilevel-cat-condo)
 [![Yaheetech-Cat-Tree-Cat-Tower-Multilevel-Cat-Condo](<https://images-na.ssl-images-amazon.com/images/I/71hk1vtDvAL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Yaheetech-Tower-Multilevel-Scratching-Indoor/dp/B0B6VHQLKH/?tag=cattreeguide-20>)[![Yaheetech-Cat-Tree-Cat-Tower-Multilevel-Cat-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Yaheetech-Tower-Multilevel-Scratching-Indoor/dp/B0B6VHQLKH/?tag=cattreeguide-20>)
 
 ### Product Description 
@@ -1862,7 +1862,7 @@ The dimensions on the website make it seem smaller than it really is which is a 
 
 ---
 
-  ## [Rabbitgoo Cat Tree Cat Tower 61 For Indoor](/Rabbitgoo-Cat-Tree-Cat-Tower-61-For-Indoor)
+  ## [Rabbitgoo Cat Tree Cat Tower 61 For Indoor](/reviews/rabbitgoo-cat-tree-cat-tower-61-for-indoor)
 [![Rabbitgoo-Cat-Tree-Cat-Tower-61-For-Indoor](<https://images-na.ssl-images-amazon.com/images/I/71hwh-wa7EL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/rabbitgoo-Multi-Level-Scratching-Furniture-Climbing/dp/B08D94LX6L/?tag=cattreeguide-20>)[![Rabbitgoo-Cat-Tree-Cat-Tower-61-For-Indoor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/rabbitgoo-Multi-Level-Scratching-Furniture-Climbing/dp/B08D94LX6L/?tag=cattreeguide-20>)
 
 ### Product Description 
