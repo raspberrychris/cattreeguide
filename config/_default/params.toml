@@ -11,7 +11,7 @@ colorScheme = "fire"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
 enableSearch = true
-logo = "img/cat-tree-guide.jpeg"
+logo = "img/cat-tree-guide-logo-2.jpg"
 
 
 enableCodeCopy = true
