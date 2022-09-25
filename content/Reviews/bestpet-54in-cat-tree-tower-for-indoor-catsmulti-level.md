@@ -1,9 +1,6 @@
 ---
 title: "Bestpet 54In Cat Tree Tower For Indoor Cats Multi-Level"
-_build:
-  render: never
-  list: never
-  publishResources: false
+draft: false
 ---
 
  ## [Bestpet 54In Cat Tree Tower For Indoor Cats Multi-Level](/reviews/bestpet-54in-cat-tree-tower-for-indoor-catsmulti-level)
