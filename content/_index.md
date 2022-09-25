@@ -200,7 +200,7 @@ I'm very happy with this purchase. The instructions for assembly are well writte
 
 ---
  
-  ## [Xin Three Layer Cat Tree Cat Condo](/reviews//xin-three-layer-cat-tree-cat-condo)
+  ## [Xin Three Layer Cat Tree Cat Condo](/reviews/xin-three-layer-cat-tree-cat-condo)
 [![Xin-Three-Layer-Cat-Tree-Cat-Condo](<https://images-na.ssl-images-amazon.com/images/I/81LDzdFZiSL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/WANG-XIN-Three-Hammocks-502/dp/B09576SLY9/?tag=cattreeguide-20>)[![Xin-Three-Layer-Cat-Tree-Cat-Condo](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/WANG-XIN-Three-Hammocks-502/dp/B09576SLY9/?tag=cattreeguide-20>)
 
 ### Product Description 
